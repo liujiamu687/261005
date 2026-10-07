@@ -1,0 +1,182 @@
+
+# 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
+
+更新时间：2026-10-05 03:02:47
+
+书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。 https://www.aurorawj.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.aurorawj.com/book/3bec9e5/
+- 橘子小狗只想打排球 https://www.aurorawj.com/book/3bec9ds/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.aurorawj.com/book/3bec9dq/
+- 王妃求子记 https://www.aurorawj.com/book/3bec9dn/
+- 胎穿到恶毒反派肚中 https://www.aurorawj.com/book/3bec9dl/
+- 穿书九零，老实嫂子要嫁人 https://www.aurorawj.com/book/3bec9di/
+- 神棍六十年代再就业 https://www.aurorawj.com/book/3bec9df/
+- 洞房夜，我和夫君一起翻车 https://www.aurorawj.com/book/3bec9de/
+- ［西游］我的饭馆通大唐 https://www.aurorawj.com/book/3bec9d9/
+- 超英都在阻止我黑化[综英美] https://www.aurorawj.com/book/3bec9d8/
+- 我心有憾不可平[历史直播] https://www.aurorawj.com/book/3bec9d2/
+- 论人间失格与血鬼术的适配性 https://www.aurorawj.com/book/3bec9d0/
+- 她柔弱不能自理 https://www.aurorawj.com/book/3bec9cu/
+- [足球]被儿子队友求婚以后 https://www.aurorawj.com/book/3bec9ct/
+- 拒婚后，和联姻对象闪婚了 https://www.aurorawj.com/book/3bec9cs/
+- 戏意 https://www.aurorawj.com/book/3bec9cj/
+- 华夏卡牌，但亡国之君 https://www.aurorawj.com/book/3bec9ci/
+- 鼬系如何在鸥台生存 https://www.aurorawj.com/book/3bec9cd/
+- 笨蛋美人主动和亲后 https://www.aurorawj.com/book/3bec9c7/
+- [综]恋与蜘蛛侠 https://www.aurorawj.com/book/3bec9c6/
+- 少女暴君在乙游 https://www.aurorawj.com/book/3bec9c3/
+- 人鱼种草养毛茸茸 https://www.aurorawj.com/book/3bec9c2/
+- 失忆后误把顶流对家当男朋友 https://www.aurorawj.com/book/3bec9c1/
+- 陪嫁后被迫成了通房 https://www.aurorawj.com/book/3bec9c0/
+- [全职高手]走错片场要怎么办 https://www.aurorawj.com/book/3bec9bt/
+- 被坏狗盯上了 https://www.aurorawj.com/book/3bec9bs/
+- 养媳欲离 https://www.aurorawj.com/book/3bec9br/
+- [综英美]这地图不对劲 https://www.aurorawj.com/book/3bec9bq/
+- 金光裘 https://www.aurorawj.com/book/3bec9bn/
+- 日向怎么通关忍界 https://www.aurorawj.com/book/3bec9bi/
+- 一剑捅穿道侣后他变天道了 https://www.aurorawj.com/book/3bec9bh/
+- 路人攻今天救风尘了吗［快穿］ https://www.aurorawj.com/book/3bec9bc/
+- 妖狐崽崽，但全家普通人 https://www.aurorawj.com/book/3bec9bb/
+- 在将军府任职男仆侍后 https://www.aurorawj.com/book/3bec9b5/
+- 直播手术，外科天才打脸日常[重生] https://www.aurorawj.com/book/3bec9b3/
+- 他怎么还不提分手？ https://www.aurorawj.com/book/3bec9b1/
+- [全职高手]我家攻坚撒手没 https://www.aurorawj.com/book/3bec9as/
+- 漂亮知青说他是我未来老婆 https://www.aurorawj.com/book/3bec9ar/
+- 和乙骨前辈网恋后 https://www.aurorawj.com/book/3bec9ap/
+- 真千金她一心向道 https://www.aurorawj.com/book/3bec9ai/
+- 那什么的小蜘蛛 https://www.aurorawj.com/book/3bec9ae/
+- [诡秘之主]历史同人的神秘学用法 https://www.aurorawj.com/book/3bec9ad/
+- 心上春 https://www.aurorawj.com/book/3bec9ab/
+- 哥，咱俩天下第一好 https://www.aurorawj.com/book/3bec9aa/
+- 假装Daddy儿子翻车后 https://www.aurorawj.com/book/3bec9a8/
+- 穿成丫鬟，但绑定游戏面板 https://www.aurorawj.com/book/3bec9a7/
+- 男二就是要给龙傲天当老婆的 https://www.aurorawj.com/book/3bec9a4/
+- 谁家女主是野牦牛啊！ https://www.aurorawj.com/book/3bec9a2/
+- 重生不入东宫 https://www.aurorawj.com/book/3bec9a1/
+- 有限制体质的仙尊徒弟 https://www.aurorawj.com/book/3bec9a0/
+- 黎明协奏曲 https://www.aurorawj.com/book/3bec99u/
+- 龙傲天求我挖他仙骨 https://www.aurorawj.com/book/3bec99s/
+- 破了剑道魁首的无情道后 https://www.aurorawj.com/book/3bec99p/
+- 致镜汀 https://www.aurorawj.com/book/3bec99n/
+- 女装网骗到校草怎么办 https://www.aurorawj.com/book/3bec99l/
+- 哥哥不是我的吗？[九零] https://www.aurorawj.com/book/3bec99k/
+- 吉食已到 https://www.aurorawj.com/book/3bec99h/
+- 禁止勾搭黑化万人迷 https://www.aurorawj.com/book/3bec99g/
+- 谁是真正的猎物？ https://www.aurorawj.com/book/3bec99e/
+- 港城暴发户的败家妻[年代] https://www.aurorawj.com/book/3bec99a/
+- 谁要给暴君当狗啊？！ https://www.aurorawj.com/book/3bec997/
+- 无法攻略的他[娱乐圈] https://www.aurorawj.com/book/3bec993/
+- 今天被邪祟撅了吗？ https://www.aurorawj.com/book/3bec98v/
+- 黑化超英抽卡中[综英美] https://www.aurorawj.com/book/3bec98u/
+- 老板被我渣了两次？ https://www.aurorawj.com/book/3bec98q/
+- [娱乐圈]学医救不了性冷淡！ https://www.aurorawj.com/book/3bec8l0/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.aurorawj.com/book/3bec8kl/
+- 宿傩妹妹今天也在艰难求生 https://www.aurorawj.com/book/3bec8j8/
+- 这个替嫁让我来！ https://www.aurorawj.com/book/3bec49d/
+- 康熙宠妃日常 https://www.aurorawj.com/book/3bebo7s/
+- 从1951开始 https://www.aurorawj.com/book/3bebo7a/
+- 清穿女回来后[天幕] https://www.aurorawj.com/book/3bebo6h/
+- 天幕今天也在直播我搞基建 https://www.aurorawj.com/book/3bebo0v/
+- 今天还不可以造反吗？？？ https://www.aurorawj.com/book/3bebi78/
+- [足球]足坛人生模拟器 https://www.aurorawj.com/book/3bebg2s/
+- 喂，别睡了！ https://www.aurorawj.com/book/3bebe5u/
+- 我老婆怎么是反派暴君 https://www.aurorawj.com/book/3beban7/
+- 从维多利亚时代开始 https://www.aurorawj.com/book/3beb2up/
+- 昭暮 https://www.aurorawj.com/book/3beauel/
+- 九零重组小家庭 https://www.aurorawj.com/book/3beatje/
+- 食明 https://www.aurorawj.com/book/3beak7a/
+- 诡话第一boss [赛诗会作品] https://www.aurorawj.com/book/3beagun/
+- [斗罗]你已有取死之道 https://www.aurorawj.com/book/3beag88/
+- 在这个圈子，叫“跟” https://www.aurorawj.com/book/3beafl1/
+- 镇守神州，从万里长城开始 https://www.aurorawj.com/book/3beadvj/
+- 被鬼怪宠爱的漂亮书生 https://www.aurorawj.com/book/3beadp2/
+- 浪漫至死也致死 https://www.aurorawj.com/book/3bead3k/
+- 反派白月光不按剧情死[快穿] https://www.aurorawj.com/book/3beabqd/
+- 全天下都在求太子殿下别死！ https://www.aurorawj.com/book/3beabcd/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.aurorawj.com/book/3beaas4/
+- 社畜Beta也能被顶A觊觎吗 https://www.aurorawj.com/book/3bea566/
+- 我真不想当魔头的师妹 https://www.aurorawj.com/book/3bea0ut/
+- 被小蜘蛛听见心声后 https://www.aurorawj.com/book/3bea0b9/
+- 青宁升仙录 https://www.aurorawj.com/book/3be9t4t/
+- 韩团绿卡不想忍了 https://www.aurorawj.com/book/3be9s3u/
+- 在诡异世界扮演神明[快穿] https://www.aurorawj.com/book/3be9qtm/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.aurorawj.com/book/3be9mbb/
+- 哥你不能不要我 https://www.aurorawj.com/book/3be9m7i/
+- 社恐直播鉴宝，但带球跑 https://www.aurorawj.com/book/3be9l8o/
+- 获得七个彩虹共感娃娃 https://www.aurorawj.com/book/3be9fi0/
+- 言不由衷 https://www.aurorawj.com/book/3be9chp/
+- 被迫臣服冰山顶级大小姐O https://www.aurorawj.com/book/3be9blb/
+- 过气男团ACE重生后 https://www.aurorawj.com/book/3be9ari/
+- 死遁后成了忍界白月光？ https://www.aurorawj.com/book/3be9ala/
+- 这谁的沙雕二次元心声！ https://www.aurorawj.com/book/3be99bp/
+- 耀眼的他 https://www.aurorawj.com/book/3be97ku/
+- 重力系杀手误入忍界记实录 https://www.aurorawj.com/book/3be950q/
+- 始乱终弃清冷公子后 https://www.aurorawj.com/book/3be91pv/
+- 满级大佬成为养成系[娱乐圈] https://www.aurorawj.com/book/3be8v73/
+- 偷香窃玉 https://www.aurorawj.com/book/3be8u6r/
+- 穿书留子，在线苟命 https://www.aurorawj.com/book/3be8tqi/
+- 一枝枝怨 https://www.aurorawj.com/book/3be8poc/
+- 魔物堆里的人类幼崽 https://www.aurorawj.com/book/3be8lor/
+- 幸村女友，但赛博除妖师 https://www.aurorawj.com/book/3be8k4q/
+- 女巫异世界打工指南[西幻] https://www.aurorawj.com/book/3be8jq3/
+- 标记母亲的前妻O后 https://www.aurorawj.com/book/3be8i6q/
+- 全民求生里不是这样的！ https://www.aurorawj.com/book/3be8flm/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.aurorawj.com/book/3be8fd3/
+- 穿进女儿国，误娶笨蛋美人 https://www.aurorawj.com/book/3be8fau/
+- 荒山安居日常 https://www.aurorawj.com/book/3be8csq/
+- 欢迎光临，万世极乐 https://www.aurorawj.com/book/3be8boa/
+- 全民求生：我在森林里当初级魔法师 https://www.aurorawj.com/book/3be8akh/
+- 道长，收收神通吧 https://www.aurorawj.com/book/3be851h/
+- 异界求生从马甲开始 https://www.aurorawj.com/book/3be84lh/
+- 将妹妹嫁给别人后 https://www.aurorawj.com/book/3be849b/
+- 十二星座请选择你的安全屋 https://www.aurorawj.com/book/3be7vbm/
+- 非人马甲与日俱增[升维] https://www.aurorawj.com/book/3be7qmi/
+- 我家民宿，古人抢着上班 https://www.aurorawj.com/book/3be7qfn/
+- 春山慢 https://www.aurorawj.com/book/3be7pq8/
+- 渴肤症总裁的秘密情人 https://www.aurorawj.com/book/3be7pbm/
+- 悬刃之下 https://www.aurorawj.com/book/3be7o9d/
+- 漂亮病弱直男缠药封建大爹 https://www.aurorawj.com/book/3be7loi/
+- 老子顶A，凭什么当皇妃！ https://www.aurorawj.com/book/3be7ll0/
+- 星海世界生存指南[无限] https://www.aurorawj.com/book/3be7jrc/
+- 在运动番当顶级Bking https://www.aurorawj.com/book/3be7ioo/
+- 她是反派的背景板母亲 https://www.aurorawj.com/book/3be6o36/
+- 全民求生:从小木屋到魔法农场 https://www.aurorawj.com/book/3be6o10/
+- 禁止限制文主角转职龙傲天 https://www.aurorawj.com/book/3be6nua/
+- 我有一座安全城 [赛诗会作品] https://www.aurorawj.com/book/3be6ns3/
+- 我是唯一地上神国 [赛诗会作品] https://www.aurorawj.com/book/3be6nqu/
+- 人气反派的马甲演绎实录 https://www.aurorawj.com/book/3be6nq5/
+- 海岛求生：生活玩家种田囤货 https://www.aurorawj.com/book/3be6ngn/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.aurorawj.com/book/3be6n4u/
+- 清澈女大的六零年代 https://www.aurorawj.com/book/3be6mpr/
+- 巨物致富：回乡开钓场 https://www.aurorawj.com/book/3be6moq/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.aurorawj.com/book/3be6mlm/
+- 卷王后妈，八零养娃 https://www.aurorawj.com/book/3be6m5g/
+- 五十年代港城日常 https://www.aurorawj.com/book/3be6m3d/
+- 星际团宠小人鱼 [赛诗会作品] https://www.aurorawj.com/book/3be6lrh/
+- [娱乐圈]过分美丽的她 https://www.aurorawj.com/book/3be6lkc/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.aurorawj.com/book/3be6li2/
+- 木叶RPG，恋爱系物语 https://www.aurorawj.com/book/3be6lce/
+- 日化人生[科研] https://www.aurorawj.com/book/3be6kug/
+- 大瑛弟国 https://www.aurorawj.com/book/3be6kua/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1406/index.md)
+- [最新热点小说](/site1406/newhot.md)
+- [人气小说](/site1406/b111.md)
+- [推荐小说](/site1406/recommend1.md)
+- [推荐小说列表](/site1406/recommend/index.md)
+- [热点小说](/site1406/hot/index.md)
+- [全本小说](/site1406/quanben/index.md)
+- [网站地图](/site1406/sitemap/index.md)
+- [标签](/site1406/tag/index.md)
+- [爱情小说](/site1406/category101/index.md)
+- [武侠小说](/site1406/category102/index.md)
+- [奇幻小说](/site1406/category103/index.md)
+- [仙侠小说](/site1406/category104/index.md)
+- [游戏小说](/site1406/category105/index.md)
+- [传奇小说](/site1406/category106/index.md)
+- [科幻小说](/site1406/category107/index.md)
+- [惊悚小说](/site1406/category109/index.md)
+- [悬疑小说](/site1406/category110/index.md)
