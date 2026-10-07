@@ -1,0 +1,182 @@
+
+# 笔下文学-无广告免费在线小说阅读网站
+
+更新时间：2026-10-05 03:03:28
+
+笔下文学提供了一个完全免费的小说在线阅读与下载平台。我们承诺给用户一个无广告、无弹窗干扰的阅读环境，让每位读者都能享受纯净舒适的阅读体验。 https://www.fshxjd.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.fshxjd.com/book/74i3n5p/
+- 假装Daddy儿子翻车后 https://www.fshxjd.com/book/74i3n5o/
+- 拒婚后，和联姻对象闪婚了 https://www.fshxjd.com/book/74i3n5m/
+- 破了剑道魁首的无情道后 https://www.fshxjd.com/book/74i3n5l/
+- 老板被我渣了两次？ https://www.fshxjd.com/book/74i3n5j/
+- 人鱼种草养毛茸茸 https://www.fshxjd.com/book/74i3n5i/
+- 直播手术，外科天才打脸日常[重生] https://www.fshxjd.com/book/74i3n5h/
+- 穿进女儿国，误娶笨蛋美人 https://www.fshxjd.com/book/74i3n5f/
+- 金光裘 https://www.fshxjd.com/book/74i3n5e/
+- 男二就是要给龙傲天当老婆的 https://www.fshxjd.com/book/74i3n5d/
+- 哥，咱俩天下第一好 https://www.fshxjd.com/book/74i3n5c/
+- 哥哥不是我的吗？[九零] https://www.fshxjd.com/book/74i3n5b/
+- 她柔弱不能自理 https://www.fshxjd.com/book/74i3n5a/
+- 欢迎光临，万世极乐 https://www.fshxjd.com/book/74i3n59/
+- ［西游］我的饭馆通大唐 https://www.fshxjd.com/book/74i3n58/
+- 在将军府任职男仆侍后 https://www.fshxjd.com/book/74i3n57/
+- [综英美]这地图不对劲 https://www.fshxjd.com/book/74i3n56/
+- 谁是真正的猎物？ https://www.fshxjd.com/book/74i3n55/
+- 女装网骗到校草怎么办 https://www.fshxjd.com/book/74i3n54/
+- 真千金她一心向道 https://www.fshxjd.com/book/74i3n53/
+- 谁要给暴君当狗啊？！ https://www.fshxjd.com/book/74i3n52/
+- 王妃求子记 https://www.fshxjd.com/book/74i3n50/
+- 少女暴君在乙游 https://www.fshxjd.com/book/74i3n4v/
+- 洞房夜，我和夫君一起翻车 https://www.fshxjd.com/book/74i3n4u/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.fshxjd.com/book/74i3n4s/
+- 笨蛋美人主动和亲后 https://www.fshxjd.com/book/74i3n4r/
+- 被坏狗盯上了 https://www.fshxjd.com/book/74i3n4q/
+- 橘子小狗只想打排球 https://www.fshxjd.com/book/74i3n4p/
+- 重生不入东宫 https://www.fshxjd.com/book/74i3n4o/
+- 他怎么还不提分手？ https://www.fshxjd.com/book/74i3n4m/
+- 鼬系如何在鸥台生存 https://www.fshxjd.com/book/74i3n4l/
+- 一剑捅穿道侣后他变天道了 https://www.fshxjd.com/book/74i3n4k/
+- 黎明协奏曲 https://www.fshxjd.com/book/74i3n4j/
+- 和乙骨前辈网恋后 https://www.fshxjd.com/book/74i3n4i/
+- 谁家女主是野牦牛啊！ https://www.fshxjd.com/book/74i3n4h/
+- 论人间失格与血鬼术的适配性 https://www.fshxjd.com/book/74i3n4g/
+- 有限制体质的仙尊徒弟 https://www.fshxjd.com/book/74i3n4f/
+- 胎穿到恶毒反派肚中 https://www.fshxjd.com/book/74i3n4e/
+- 渴肤症总裁的秘密情人 https://www.fshxjd.com/book/74i3n4d/
+- 港城暴发户的败家妻[年代] https://www.fshxjd.com/book/74i3n4c/
+- 陪嫁后被迫成了通房 https://www.fshxjd.com/book/74i3n4b/
+- 日向怎么通关忍界 https://www.fshxjd.com/book/74i3n4a/
+- 失忆后误把顶流对家当男朋友 https://www.fshxjd.com/book/74i3n49/
+- [综]恋与蜘蛛侠 https://www.fshxjd.com/book/74i3n48/
+- 妖狐崽崽，但全家普通人 https://www.fshxjd.com/book/74i3n47/
+- 禁止勾搭黑化万人迷 https://www.fshxjd.com/book/74i3n46/
+- [全职高手]我家攻坚撒手没 https://www.fshxjd.com/book/74i3n45/
+- 超英都在阻止我黑化[综英美] https://www.fshxjd.com/book/74i3n43/
+- 全天下都在求太子殿下别死！ https://www.fshxjd.com/book/74i3n42/
+- 致镜汀 https://www.fshxjd.com/book/74i3n41/
+- 神棍六十年代再就业 https://www.fshxjd.com/book/74i3n40/
+- 养媳欲离 https://www.fshxjd.com/book/74i3n3v/
+- 无法攻略的他[娱乐圈] https://www.fshxjd.com/book/74i3n3u/
+- 那什么的小蜘蛛 https://www.fshxjd.com/book/74i3n3t/
+- 龙傲天求我挖他仙骨 https://www.fshxjd.com/book/74i3n3s/
+- 穿成丫鬟，但绑定游戏面板 https://www.fshxjd.com/book/74i3n3r/
+- 浪漫至死也致死 https://www.fshxjd.com/book/74i3n3q/
+- 华夏卡牌，但亡国之君 https://www.fshxjd.com/book/74i3n3p/
+- [诡秘之主]历史同人的神秘学用法 https://www.fshxjd.com/book/74i3n3o/
+- 戏意 https://www.fshxjd.com/book/74i3n3n/
+- [全职高手]走错片场要怎么办 https://www.fshxjd.com/book/74i3n3m/
+- 心上春 https://www.fshxjd.com/book/74i3n3l/
+- [足球]被儿子队友求婚以后 https://www.fshxjd.com/book/74i3n3k/
+- 吉食已到 https://www.fshxjd.com/book/74i3n3j/
+- 我心有憾不可平[历史直播] https://www.fshxjd.com/book/74i3n3i/
+- 路人攻今天救风尘了吗［快穿］ https://www.fshxjd.com/book/74i3n3h/
+- 黑化超英抽卡中[综英美] https://www.fshxjd.com/book/74i3n3g/
+- 穿书九零，老实嫂子要嫁人 https://www.fshxjd.com/book/74i3n3f/
+- 漂亮知青说他是我未来老婆 https://www.fshxjd.com/book/74i3n3e/
+- 今天被邪祟撅了吗？ https://www.fshxjd.com/book/74i3n3d/
+- 在运动番当顶级Bking https://www.fshxjd.com/book/74i3n3c/
+- 宿傩妹妹今天也在艰难求生 https://www.fshxjd.com/book/74i3mup/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.fshxjd.com/book/74i3mud/
+- [娱乐圈]学医救不了性冷淡！ https://www.fshxjd.com/book/74i3mtu/
+- 从1951开始 https://www.fshxjd.com/book/74i3msv/
+- 康熙宠妃日常 https://www.fshxjd.com/book/74i3mq3/
+- 清穿女回来后[天幕] https://www.fshxjd.com/book/74i3mpo/
+- 这个替嫁让我来！ https://www.fshxjd.com/book/74i3moc/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.fshxjd.com/book/74i3lsu/
+- 十二星座请选择你的安全屋 https://www.fshxjd.com/book/74i3a9d/
+- 今天还不可以造反吗？？？ https://www.fshxjd.com/book/74i3a68/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.fshxjd.com/book/74i35l9/
+- 星际团宠小人鱼 [赛诗会作品] https://www.fshxjd.com/book/74i35i1/
+- 我老婆怎么是反派暴君 https://www.fshxjd.com/book/74i343c/
+- 九零重组小家庭 https://www.fshxjd.com/book/74i316e/
+- 喂，别睡了！ https://www.fshxjd.com/book/74i30q2/
+- [足球]足坛人生模拟器 https://www.fshxjd.com/book/74i2uak/
+- 昭暮 https://www.fshxjd.com/book/74i2hg5/
+- 从维多利亚时代开始 https://www.fshxjd.com/book/74i2grd/
+- 食明 https://www.fshxjd.com/book/74i21vs/
+- 诡话第一boss [赛诗会作品] https://www.fshxjd.com/book/74i1up6/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.fshxjd.com/book/74i1qt1/
+- 禁止限制文主角转职龙傲天 https://www.fshxjd.com/book/74i1qfn/
+- 镇守神州，从万里长城开始 https://www.fshxjd.com/book/74i1ofb/
+- [斗罗]你已有取死之道 https://www.fshxjd.com/book/74i1m17/
+- 社畜Beta也能被顶A觊觎吗 https://www.fshxjd.com/book/74i1kne/
+- 被小蜘蛛听见心声后 https://www.fshxjd.com/book/74i1j9k/
+- 反派白月光不按剧情死[快穿] https://www.fshxjd.com/book/74i1hdj/
+- 我真不想当魔头的师妹 https://www.fshxjd.com/book/74i1f76/
+- 青宁升仙录 https://www.fshxjd.com/book/74i1b8r/
+- 在诡异世界扮演神明[快穿] https://www.fshxjd.com/book/74i113f/
+- 社恐直播鉴宝，但带球跑 https://www.fshxjd.com/book/74i0vfv/
+- 获得七个彩虹共感娃娃 https://www.fshxjd.com/book/74i0qjh/
+- 木叶RPG，恋爱系物语 https://www.fshxjd.com/book/74i0m3r/
+- 被迫臣服冰山顶级大小姐O https://www.fshxjd.com/book/74i0jp6/
+- 在这个圈子，叫“跟” https://www.fshxjd.com/book/74i0hvm/
+- 死遁后成了忍界白月光？ https://www.fshxjd.com/book/74i0gmv/
+- 满级大佬成为养成系[娱乐圈] https://www.fshxjd.com/book/74i0erc/
+- 被鬼怪宠爱的漂亮书生 https://www.fshxjd.com/book/74i0eec/
+- 过气男团ACE重生后 https://www.fshxjd.com/book/74i0dv5/
+- 哥你不能不要我 https://www.fshxjd.com/book/74i0di9/
+- 始乱终弃清冷公子后 https://www.fshxjd.com/book/74i0de9/
+- 耀眼的他 https://www.fshxjd.com/book/74i0dal/
+- 言不由衷 https://www.fshxjd.com/book/74i0ci3/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.fshxjd.com/book/74i0c7u/
+- 重力系杀手误入忍界记实录 https://www.fshxjd.com/book/74i0a7j/
+- 这谁的沙雕二次元心声！ https://www.fshxjd.com/book/74i092l/
+- 卷王后妈，八零养娃 https://www.fshxjd.com/book/74i08g8/
+- 偷香窃玉 https://www.fshxjd.com/book/74i03o0/
+- 一枝枝怨 https://www.fshxjd.com/book/74i01j5/
+- 将妹妹嫁给别人后 https://www.fshxjd.com/book/74i00uh/
+- 女巫异世界打工指南[西幻] https://www.fshxjd.com/book/74hvucv/
+- 穿书留子，在线苟命 https://www.fshxjd.com/book/74hvu0j/
+- 标记母亲的前妻O后 https://www.fshxjd.com/book/74hvp9b/
+- 荒山安居日常 https://www.fshxjd.com/book/74hvofm/
+- 韩团绿卡不想忍了 https://www.fshxjd.com/book/74hvnqo/
+- 人气反派的马甲演绎实录 https://www.fshxjd.com/book/74hvl5q/
+- 道长，收收神通吧 https://www.fshxjd.com/book/74hvk6r/
+- 魔物堆里的人类幼崽 https://www.fshxjd.com/book/74hvk0h/
+- 全民求生里不是这样的！ https://www.fshxjd.com/book/74hvjvr/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.fshxjd.com/book/74hvilo/
+- 异界求生从马甲开始 https://www.fshxjd.com/book/74hvhq9/
+- 我家民宿，古人抢着上班 https://www.fshxjd.com/book/74hv851/
+- 春山慢 https://www.fshxjd.com/book/74hv817/
+- 全民求生：我在森林里当初级魔法师 https://www.fshxjd.com/book/74hv5ar/
+- 非人马甲与日俱增[升维] https://www.fshxjd.com/book/74hv53n/
+- 老子顶A，凭什么当皇妃！ https://www.fshxjd.com/book/74hv3m6/
+- 漂亮病弱直男缠药封建大爹 https://www.fshxjd.com/book/74hv34j/
+- 星海世界生存指南[无限] https://www.fshxjd.com/book/74hv2so/
+- 悬刃之下 https://www.fshxjd.com/book/74hv0b6/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.fshxjd.com/book/74hu5nj/
+- 天幕今天也在直播我搞基建 https://www.fshxjd.com/book/74hu59o/
+- [娱乐圈]过分美丽的她 https://www.fshxjd.com/book/74hu53j/
+- 大瑛弟国 https://www.fshxjd.com/book/74hu4v1/
+- 她是反派的背景板母亲 https://www.fshxjd.com/book/74hu4o5/
+- 巨物致富：回乡开钓场 https://www.fshxjd.com/book/74hu4l3/
+- 五十年代港城日常 https://www.fshxjd.com/book/74hu4g9/
+- 海岛求生：生活玩家种田囤货 https://www.fshxjd.com/book/74hu48i/
+- 日化人生[科研] https://www.fshxjd.com/book/74hu43o/
+- 我有一座安全城 [赛诗会作品] https://www.fshxjd.com/book/74hu3rs/
+- 全民求生:从小木屋到魔法农场 https://www.fshxjd.com/book/74hu3ha/
+- 我是唯一地上神国 [赛诗会作品] https://www.fshxjd.com/book/74hu3fj/
+- 清澈女大的六零年代 https://www.fshxjd.com/book/74hu2vm/
+- 幸村女友，但赛博除妖师 https://www.fshxjd.com/book/74hu2tm/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1338/index.md)
+- [最新热点小说](/site1338/newhot.md)
+- [人气小说](/site1338/b111.md)
+- [推荐小说](/site1338/recommend1.md)
+- [推荐小说列表](/site1338/recommend/index.md)
+- [热点小说](/site1338/hot/index.md)
+- [全本小说](/site1338/quanben/index.md)
+- [网站地图](/site1338/sitemap/index.md)
+- [标签](/site1338/tag/index.md)
+- [爱情小说](/site1338/category101/index.md)
+- [武侠小说](/site1338/category102/index.md)
+- [奇幻小说](/site1338/category103/index.md)
+- [仙侠小说](/site1338/category104/index.md)
+- [游戏小说](/site1338/category105/index.md)
+- [传奇小说](/site1338/category106/index.md)
+- [科幻小说](/site1338/category107/index.md)
+- [惊悚小说](/site1338/category109/index.md)
+- [悬疑小说](/site1338/category110/index.md)

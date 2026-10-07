@@ -1,0 +1,182 @@
+
+# 云南野人山野小说网 - 创意小说与文学作品分享平台
+
+更新时间：2026-10-05 03:06:57
+
+欢迎来到云南野人山野小说网 - 专注于创意小说和文学作品分享的在线平台。探索精选的小说系列及文学佳作，加入我们，与众多才华横溢的作者交流心得，共同创造美好的阅读旅程。 https://www.ynyrsy.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.ynyrsy.com/book/dfebs8/
+- 她柔弱不能自理 https://www.ynyrsy.com/book/dfebs6/
+- 橘子小狗只想打排球 https://www.ynyrsy.com/book/dfebs2/
+- 重生不入东宫 https://www.ynyrsy.com/book/dfebru/
+- 龙傲天求我挖他仙骨 https://www.ynyrsy.com/book/dfebrt/
+- 女装网骗到校草怎么办 https://www.ynyrsy.com/book/dfebrr/
+- 谁是真正的猎物？ https://www.ynyrsy.com/book/dfebrp/
+- 吉食已到 https://www.ynyrsy.com/book/dfebro/
+- 鼬系如何在鸥台生存 https://www.ynyrsy.com/book/dfebrh/
+- 黎明协奏曲 https://www.ynyrsy.com/book/dfebrf/
+- 我心有憾不可平[历史直播] https://www.ynyrsy.com/book/dfebre/
+- 人鱼种草养毛茸茸 https://www.ynyrsy.com/book/dfebr5/
+- 哥哥不是我的吗？[九零] https://www.ynyrsy.com/book/dfebr2/
+- 论人间失格与血鬼术的适配性 https://www.ynyrsy.com/book/dfebr0/
+- [综英美]这地图不对劲 https://www.ynyrsy.com/book/dfebqu/
+- 神棍六十年代再就业 https://www.ynyrsy.com/book/dfebqp/
+- [诡秘之主]历史同人的神秘学用法 https://www.ynyrsy.com/book/dfebqn/
+- 在将军府任职男仆侍后 https://www.ynyrsy.com/book/dfebqj/
+- 洞房夜，我和夫君一起翻车 https://www.ynyrsy.com/book/dfebqi/
+- 浪漫至死也致死 https://www.ynyrsy.com/book/dfebqf/
+- 哥，咱俩天下第一好 https://www.ynyrsy.com/book/dfebqc/
+- 王妃求子记 https://www.ynyrsy.com/book/dfebqa/
+- 和乙骨前辈网恋后 https://www.ynyrsy.com/book/dfebq3/
+- 一剑捅穿道侣后他变天道了 https://www.ynyrsy.com/book/dfebq1/
+- 少女暴君在乙游 https://www.ynyrsy.com/book/dfebq0/
+- 直播手术，外科天才打脸日常[重生] https://www.ynyrsy.com/book/dfebpu/
+- 漂亮知青说他是我未来老婆 https://www.ynyrsy.com/book/dfebpt/
+- 心上春 https://www.ynyrsy.com/book/dfebpq/
+- 养媳欲离 https://www.ynyrsy.com/book/dfebpo/
+- ［西游］我的饭馆通大唐 https://www.ynyrsy.com/book/dfebpn/
+- 陪嫁后被迫成了通房 https://www.ynyrsy.com/book/dfebpl/
+- 谁要给暴君当狗啊？！ https://www.ynyrsy.com/book/dfebpk/
+- 黑化超英抽卡中[综英美] https://www.ynyrsy.com/book/dfebpj/
+- [全职高手]我家攻坚撒手没 https://www.ynyrsy.com/book/dfebpi/
+- 戏意 https://www.ynyrsy.com/book/dfebph/
+- 他怎么还不提分手？ https://www.ynyrsy.com/book/dfebpd/
+- 日向怎么通关忍界 https://www.ynyrsy.com/book/dfebp8/
+- 今天被邪祟撅了吗？ https://www.ynyrsy.com/book/dfebp6/
+- 致镜汀 https://www.ynyrsy.com/book/dfebp5/
+- 笨蛋美人主动和亲后 https://www.ynyrsy.com/book/dfebot/
+- 男二就是要给龙傲天当老婆的 https://www.ynyrsy.com/book/dfeboq/
+- 谁家女主是野牦牛啊！ https://www.ynyrsy.com/book/dfeboo/
+- 被坏狗盯上了 https://www.ynyrsy.com/book/dfebon/
+- 穿书九零，老实嫂子要嫁人 https://www.ynyrsy.com/book/dfebom/
+- 破了剑道魁首的无情道后 https://www.ynyrsy.com/book/dfeboi/
+- 有限制体质的仙尊徒弟 https://www.ynyrsy.com/book/dfebof/
+- [综]恋与蜘蛛侠 https://www.ynyrsy.com/book/dfeboe/
+- 无法攻略的他[娱乐圈] https://www.ynyrsy.com/book/dfebod/
+- [全职高手]走错片场要怎么办 https://www.ynyrsy.com/book/dfebo9/
+- 穿成丫鬟，但绑定游戏面板 https://www.ynyrsy.com/book/dfebo5/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.ynyrsy.com/book/dfebo3/
+- 胎穿到恶毒反派肚中 https://www.ynyrsy.com/book/dfebo1/
+- 禁止勾搭黑化万人迷 https://www.ynyrsy.com/book/dfebo0/
+- 金光裘 https://www.ynyrsy.com/book/dfebnv/
+- 全天下都在求太子殿下别死！ https://www.ynyrsy.com/book/dfebnu/
+- 拒婚后，和联姻对象闪婚了 https://www.ynyrsy.com/book/dfebnt/
+- 那什么的小蜘蛛 https://www.ynyrsy.com/book/dfebnr/
+- 港城暴发户的败家妻[年代] https://www.ynyrsy.com/book/dfebni/
+- 假装Daddy儿子翻车后 https://www.ynyrsy.com/book/dfebnf/
+- 真千金她一心向道 https://www.ynyrsy.com/book/dfebnd/
+- 老板被我渣了两次？ https://www.ynyrsy.com/book/dfebnc/
+- 路人攻今天救风尘了吗［快穿］ https://www.ynyrsy.com/book/dfebn4/
+- [足球]被儿子队友求婚以后 https://www.ynyrsy.com/book/dfebn3/
+- 华夏卡牌，但亡国之君 https://www.ynyrsy.com/book/dfebn0/
+- 妖狐崽崽，但全家普通人 https://www.ynyrsy.com/book/dfebmu/
+- 失忆后误把顶流对家当男朋友 https://www.ynyrsy.com/book/dfebmt/
+- 超英都在阻止我黑化[综英美] https://www.ynyrsy.com/book/dfebmr/
+- [娱乐圈]学医救不了性冷淡！ https://www.ynyrsy.com/book/dfebks/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.ynyrsy.com/book/dfebjo/
+- 宿傩妹妹今天也在艰难求生 https://www.ynyrsy.com/book/dfebhh/
+- 这个替嫁让我来！ https://www.ynyrsy.com/book/dfe7p1/
+- 康熙宠妃日常 https://www.ynyrsy.com/book/dfe5ll/
+- 清穿女回来后[天幕] https://www.ynyrsy.com/book/dfe5lg/
+- 从1951开始 https://www.ynyrsy.com/book/dfe5i2/
+- 天幕今天也在直播我搞基建 https://www.ynyrsy.com/book/dfdufa/
+- 今天还不可以造反吗？？？ https://www.ynyrsy.com/book/dfdm6c/
+- [足球]足坛人生模拟器 https://www.ynyrsy.com/book/dfdiqd/
+- 喂，别睡了！ https://www.ynyrsy.com/book/dfdid4/
+- 九零重组小家庭 https://www.ynyrsy.com/book/dfdi8l/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.ynyrsy.com/book/dfdhs0/
+- 我老婆怎么是反派暴君 https://www.ynyrsy.com/book/dfdg40/
+- 从维多利亚时代开始 https://www.ynyrsy.com/book/dfd5jv/
+- 昭暮 https://www.ynyrsy.com/book/dfd227/
+- 食明 https://www.ynyrsy.com/book/dfcmhm/
+- 诡话第一boss [赛诗会作品] https://www.ynyrsy.com/book/dfcjc0/
+- 镇守神州，从万里长城开始 https://www.ynyrsy.com/book/dfcikp/
+- [斗罗]你已有取死之道 https://www.ynyrsy.com/book/dfce1i/
+- 反派白月光不按剧情死[快穿] https://www.ynyrsy.com/book/dfcc7a/
+- 在这个圈子，叫“跟” https://www.ynyrsy.com/book/dfc7o3/
+- 社畜Beta也能被顶A觊觎吗 https://www.ynyrsy.com/book/dfc784/
+- 被鬼怪宠爱的漂亮书生 https://www.ynyrsy.com/book/dfc4t5/
+- 我真不想当魔头的师妹 https://www.ynyrsy.com/book/dfc3iu/
+- 青宁升仙录 https://www.ynyrsy.com/book/dfbv55/
+- 韩团绿卡不想忍了 https://www.ynyrsy.com/book/dfbrn5/
+- 在诡异世界扮演神明[快穿] https://www.ynyrsy.com/book/dfbq9n/
+- 十二星座请选择你的安全屋 https://www.ynyrsy.com/book/dfbopb/
+- 社恐直播鉴宝，但带球跑 https://www.ynyrsy.com/book/dfbm2h/
+- 哥你不能不要我 https://www.ynyrsy.com/book/dfbio8/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.ynyrsy.com/book/dfbi90/
+- 获得七个彩虹共感娃娃 https://www.ynyrsy.com/book/dfbgt1/
+- 被小蜘蛛听见心声后 https://www.ynyrsy.com/book/dfbf4a/
+- 言不由衷 https://www.ynyrsy.com/book/dfbc5s/
+- 死遁后成了忍界白月光？ https://www.ynyrsy.com/book/dfbbcr/
+- 被迫臣服冰山顶级大小姐O https://www.ynyrsy.com/book/dfbaa6/
+- 耀眼的他 https://www.ynyrsy.com/book/dfb99j/
+- 过气男团ACE重生后 https://www.ynyrsy.com/book/dfb7df/
+- 这谁的沙雕二次元心声！ https://www.ynyrsy.com/book/dfb6nf/
+- 始乱终弃清冷公子后 https://www.ynyrsy.com/book/dfb6mh/
+- 重力系杀手误入忍界记实录 https://www.ynyrsy.com/book/dfb5h2/
+- 满级大佬成为养成系[娱乐圈] https://www.ynyrsy.com/book/dfb1kg/
+- 将妹妹嫁给别人后 https://www.ynyrsy.com/book/dfb190/
+- 穿书留子，在线苟命 https://www.ynyrsy.com/book/dfau1c/
+- 偷香窃玉 https://www.ynyrsy.com/book/dfasfg/
+- 一枝枝怨 https://www.ynyrsy.com/book/dfas1h/
+- 魔物堆里的人类幼崽 https://www.ynyrsy.com/book/dfan06/
+- 女巫异世界打工指南[西幻] https://www.ynyrsy.com/book/dfal7o/
+- 幸村女友，但赛博除妖师 https://www.ynyrsy.com/book/dfakm0/
+- 标记母亲的前妻O后 https://www.ynyrsy.com/book/dfag18/
+- 穿进女儿国，误娶笨蛋美人 https://www.ynyrsy.com/book/dfaeue/
+- 全民求生里不是这样的！ https://www.ynyrsy.com/book/dfadvb/
+- 荒山安居日常 https://www.ynyrsy.com/book/dfad6r/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.ynyrsy.com/book/dfacgk/
+- 全民求生：我在森林里当初级魔法师 https://www.ynyrsy.com/book/dfa9lt/
+- 欢迎光临，万世极乐 https://www.ynyrsy.com/book/dfa835/
+- 道长，收收神通吧 https://www.ynyrsy.com/book/dfa7sh/
+- 异界求生从马甲开始 https://www.ynyrsy.com/book/dfa6kd/
+- 我家民宿，古人抢着上班 https://www.ynyrsy.com/book/df9t4e/
+- 春山慢 https://www.ynyrsy.com/book/df9sga/
+- 漂亮病弱直男缠药封建大爹 https://www.ynyrsy.com/book/df9qm2/
+- 老子顶A，凭什么当皇妃！ https://www.ynyrsy.com/book/df9p6p/
+- 渴肤症总裁的秘密情人 https://www.ynyrsy.com/book/df9ocl/
+- 悬刃之下 https://www.ynyrsy.com/book/df9oag/
+- 非人马甲与日俱增[升维] https://www.ynyrsy.com/book/df9o4d/
+- 在运动番当顶级Bking https://www.ynyrsy.com/book/df9l7n/
+- 星海世界生存指南[无限] https://www.ynyrsy.com/book/df9l05/
+- 海岛求生：生活玩家种田囤货 https://www.ynyrsy.com/book/df8q3p/
+- 我是唯一地上神国 [赛诗会作品] https://www.ynyrsy.com/book/df8q3n/
+- 禁止限制文主角转职龙傲天 https://www.ynyrsy.com/book/df8prm/
+- 我有一座安全城 [赛诗会作品] https://www.ynyrsy.com/book/df8pqj/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.ynyrsy.com/book/df8p8g/
+- 星际团宠小人鱼 [赛诗会作品] https://www.ynyrsy.com/book/df8otm/
+- 五十年代港城日常 https://www.ynyrsy.com/book/df8oqe/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.ynyrsy.com/book/df8olq/
+- 她是反派的背景板母亲 https://www.ynyrsy.com/book/df8ohv/
+- 清澈女大的六零年代 https://www.ynyrsy.com/book/df8ob1/
+- 全民求生:从小木屋到魔法农场 https://www.ynyrsy.com/book/df8o6o/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.ynyrsy.com/book/df8o6n/
+- 大瑛弟国 https://www.ynyrsy.com/book/df8o3h/
+- 日化人生[科研] https://www.ynyrsy.com/book/df8nu0/
+- 人气反派的马甲演绎实录 https://www.ynyrsy.com/book/df8ns0/
+- 卷王后妈，八零养娃 https://www.ynyrsy.com/book/df8njj/
+- [娱乐圈]过分美丽的她 https://www.ynyrsy.com/book/df8nil/
+- 巨物致富：回乡开钓场 https://www.ynyrsy.com/book/df8n9u/
+- 木叶RPG，恋爱系物语 https://www.ynyrsy.com/book/df8n7h/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1379/index.md)
+- [最新热点小说](/site1379/newhot.md)
+- [人气小说](/site1379/b111.md)
+- [推荐小说](/site1379/recommend1.md)
+- [推荐小说列表](/site1379/recommend/index.md)
+- [热点小说](/site1379/hot/index.md)
+- [全本小说](/site1379/quanben/index.md)
+- [网站地图](/site1379/sitemap/index.md)
+- [标签](/site1379/tag/index.md)
+- [爱情小说](/site1379/category101/index.md)
+- [武侠小说](/site1379/category102/index.md)
+- [奇幻小说](/site1379/category103/index.md)
+- [仙侠小说](/site1379/category104/index.md)
+- [游戏小说](/site1379/category105/index.md)
+- [传奇小说](/site1379/category106/index.md)
+- [科幻小说](/site1379/category107/index.md)
+- [惊悚小说](/site1379/category109/index.md)
+- [悬疑小说](/site1379/category110/index.md)
