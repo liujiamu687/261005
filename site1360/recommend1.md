@@ -1,0 +1,182 @@
+
+# 生活文学小说-质感小说文学网站|高质量文学作品与创作交流平台
+
+更新时间：2026-10-05 03:05:14
+
+生活文学小说是一个专注于提供质感小说文学的网站，致力于为文学爱好者打造一个高质量的文学作品和创作交流平台，在这里可以享受到独特的夜间文学之美。 https://www.shenghuo988.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.shenghuo988.com/book/86gb805/
+- 被坏狗盯上了 https://www.shenghuo988.com/book/86gb804/
+- 老板被我渣了两次？ https://www.shenghuo988.com/book/86gb7vv/
+- [综英美]这地图不对劲 https://www.shenghuo988.com/book/86gb7vu/
+- 戏意 https://www.shenghuo988.com/book/86gb7vr/
+- 养媳欲离 https://www.shenghuo988.com/book/86gb7vq/
+- 神棍六十年代再就业 https://www.shenghuo988.com/book/86gb7vl/
+- 陪嫁后被迫成了通房 https://www.shenghuo988.com/book/86gb7vg/
+- 王妃求子记 https://www.shenghuo988.com/book/86gb7vf/
+- 洞房夜，我和夫君一起翻车 https://www.shenghuo988.com/book/86gb7ve/
+- 华夏卡牌，但亡国之君 https://www.shenghuo988.com/book/86gb7vc/
+- 黎明协奏曲 https://www.shenghuo988.com/book/86gb7v7/
+- 吉食已到 https://www.shenghuo988.com/book/86gb7uv/
+- 在运动番当顶级Bking https://www.shenghuo988.com/book/86gb7ut/
+- 谁是真正的猎物？ https://www.shenghuo988.com/book/86gb7us/
+- 一剑捅穿道侣后他变天道了 https://www.shenghuo988.com/book/86gb7ur/
+- 穿书九零，老实嫂子要嫁人 https://www.shenghuo988.com/book/86gb7un/
+- 超英都在阻止我黑化[综英美] https://www.shenghuo988.com/book/86gb7uj/
+- 我心有憾不可平[历史直播] https://www.shenghuo988.com/book/86gb7uh/
+- 拒婚后，和联姻对象闪婚了 https://www.shenghuo988.com/book/86gb7uc/
+- 龙傲天求我挖他仙骨 https://www.shenghuo988.com/book/86gb7ub/
+- [全职高手]我家攻坚撒手没 https://www.shenghuo988.com/book/86gb7ua/
+- 今天被邪祟撅了吗？ https://www.shenghuo988.com/book/86gb7u9/
+- 全天下都在求太子殿下别死！ https://www.shenghuo988.com/book/86gb7u7/
+- 穿成丫鬟，但绑定游戏面板 https://www.shenghuo988.com/book/86gb7u6/
+- 失忆后误把顶流对家当男朋友 https://www.shenghuo988.com/book/86gb7u5/
+- [足球]被儿子队友求婚以后 https://www.shenghuo988.com/book/86gb7u0/
+- 谁要给暴君当狗啊？！ https://www.shenghuo988.com/book/86gb7tv/
+- 直播手术，外科天才打脸日常[重生] https://www.shenghuo988.com/book/86gb7tu/
+- 鼬系如何在鸥台生存 https://www.shenghuo988.com/book/86gb7tt/
+- 穿进女儿国，误娶笨蛋美人 https://www.shenghuo988.com/book/86gb7tr/
+- 路人攻今天救风尘了吗［快穿］ https://www.shenghuo988.com/book/86gb7tn/
+- 漂亮知青说他是我未来老婆 https://www.shenghuo988.com/book/86gb7tm/
+- 和乙骨前辈网恋后 https://www.shenghuo988.com/book/86gb7tk/
+- 人鱼种草养毛茸茸 https://www.shenghuo988.com/book/86gb7tj/
+- 哥，咱俩天下第一好 https://www.shenghuo988.com/book/86gb7th/
+- ［西游］我的饭馆通大唐 https://www.shenghuo988.com/book/86gb7tg/
+- 胎穿到恶毒反派肚中 https://www.shenghuo988.com/book/86gb7tf/
+- 少女暴君在乙游 https://www.shenghuo988.com/book/86gb7te/
+- 金光裘 https://www.shenghuo988.com/book/86gb7td/
+- 破了剑道魁首的无情道后 https://www.shenghuo988.com/book/86gb7t4/
+- 论人间失格与血鬼术的适配性 https://www.shenghuo988.com/book/86gb7t0/
+- 无法攻略的他[娱乐圈] https://www.shenghuo988.com/book/86gb7sv/
+- [诡秘之主]历史同人的神秘学用法 https://www.shenghuo988.com/book/86gb7su/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.shenghuo988.com/book/86gb7sm/
+- [综]恋与蜘蛛侠 https://www.shenghuo988.com/book/86gb7sh/
+- 她柔弱不能自理 https://www.shenghuo988.com/book/86gb7sg/
+- 谁家女主是野牦牛啊！ https://www.shenghuo988.com/book/86gb7sf/
+- 黑化超英抽卡中[综英美] https://www.shenghuo988.com/book/86gb7se/
+- 橘子小狗只想打排球 https://www.shenghuo988.com/book/86gb7sb/
+- 女装网骗到校草怎么办 https://www.shenghuo988.com/book/86gb7s1/
+- [全职高手]走错片场要怎么办 https://www.shenghuo988.com/book/86gb7s0/
+- 哥哥不是我的吗？[九零] https://www.shenghuo988.com/book/86gb7rv/
+- 重生不入东宫 https://www.shenghuo988.com/book/86gb7rs/
+- 笨蛋美人主动和亲后 https://www.shenghuo988.com/book/86gb7rr/
+- 致镜汀 https://www.shenghuo988.com/book/86gb7rp/
+- 他怎么还不提分手？ https://www.shenghuo988.com/book/86gb7rn/
+- 那什么的小蜘蛛 https://www.shenghuo988.com/book/86gb7rl/
+- 有限制体质的仙尊徒弟 https://www.shenghuo988.com/book/86gb7rk/
+- 浪漫至死也致死 https://www.shenghuo988.com/book/86gb7rg/
+- 假装Daddy儿子翻车后 https://www.shenghuo988.com/book/86gb7rf/
+- 真千金她一心向道 https://www.shenghuo988.com/book/86gb7rd/
+- 禁止勾搭黑化万人迷 https://www.shenghuo988.com/book/86gb7rb/
+- 心上春 https://www.shenghuo988.com/book/86gb7r9/
+- 日向怎么通关忍界 https://www.shenghuo988.com/book/86gb7r2/
+- 妖狐崽崽，但全家普通人 https://www.shenghuo988.com/book/86gb7qv/
+- 港城暴发户的败家妻[年代] https://www.shenghuo988.com/book/86gb7qu/
+- 在将军府任职男仆侍后 https://www.shenghuo988.com/book/86gb7qr/
+- 男二就是要给龙傲天当老婆的 https://www.shenghuo988.com/book/86gb7qn/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.shenghuo988.com/book/86gb7q3/
+- [娱乐圈]学医救不了性冷淡！ https://www.shenghuo988.com/book/86gb7ou/
+- 宿傩妹妹今天也在艰难求生 https://www.shenghuo988.com/book/86gb7oo/
+- 这个替嫁让我来！ https://www.shenghuo988.com/book/86gb7o2/
+- 清穿女回来后[天幕] https://www.shenghuo988.com/book/86gb7no/
+- 从1951开始 https://www.shenghuo988.com/book/86gb7le/
+- 康熙宠妃日常 https://www.shenghuo988.com/book/86gb7j7/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.shenghuo988.com/book/86gar4e/
+- 今天还不可以造反吗？？？ https://www.shenghuo988.com/book/86gallt/
+- 喂，别睡了！ https://www.shenghuo988.com/book/86gagag/
+- 九零重组小家庭 https://www.shenghuo988.com/book/86gag1v/
+- 我老婆怎么是反派暴君 https://www.shenghuo988.com/book/86gafej/
+- [足球]足坛人生模拟器 https://www.shenghuo988.com/book/86gaf5u/
+- 十二星座请选择你的安全屋 https://www.shenghuo988.com/book/86ga9oc/
+- 从维多利亚时代开始 https://www.shenghuo988.com/book/86ga1t5/
+- 昭暮 https://www.shenghuo988.com/book/86g9vrb/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.shenghuo988.com/book/86g9rul/
+- 星际团宠小人鱼 [赛诗会作品] https://www.shenghuo988.com/book/86g9ro3/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.shenghuo988.com/book/86g9kll/
+- 食明 https://www.shenghuo988.com/book/86g9io5/
+- 诡话第一boss [赛诗会作品] https://www.shenghuo988.com/book/86g9fgu/
+- 禁止限制文主角转职龙傲天 https://www.shenghuo988.com/book/86g9bn7/
+- 镇守神州，从万里长城开始 https://www.shenghuo988.com/book/86g99qb/
+- [斗罗]你已有取死之道 https://www.shenghuo988.com/book/86g97dg/
+- 社畜Beta也能被顶A觊觎吗 https://www.shenghuo988.com/book/86g9452/
+- 我真不想当魔头的师妹 https://www.shenghuo988.com/book/86g8urh/
+- 在这个圈子，叫“跟” https://www.shenghuo988.com/book/86g8svf/
+- 青宁升仙录 https://www.shenghuo988.com/book/86g8s9r/
+- 社恐直播鉴宝，但带球跑 https://www.shenghuo988.com/book/86g8it4/
+- 被鬼怪宠爱的漂亮书生 https://www.shenghuo988.com/book/86g8i6p/
+- 在诡异世界扮演神明[快穿] https://www.shenghuo988.com/book/86g8hu7/
+- 韩团绿卡不想忍了 https://www.shenghuo988.com/book/86g8evq/
+- 获得七个彩虹共感娃娃 https://www.shenghuo988.com/book/86g89rh/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.shenghuo988.com/book/86g87j4/
+- 木叶RPG，恋爱系物语 https://www.shenghuo988.com/book/86g86il/
+- 被迫臣服冰山顶级大小姐O https://www.shenghuo988.com/book/86g85qm/
+- 耀眼的他 https://www.shenghuo988.com/book/86g84ke/
+- 死遁后成了忍界白月光？ https://www.shenghuo988.com/book/86g8481/
+- 哥你不能不要我 https://www.shenghuo988.com/book/86g818m/
+- 过气男团ACE重生后 https://www.shenghuo988.com/book/86g8187/
+- 被小蜘蛛听见心声后 https://www.shenghuo988.com/book/86g80tb/
+- 言不由衷 https://www.shenghuo988.com/book/86g80bb/
+- 满级大佬成为养成系[娱乐圈] https://www.shenghuo988.com/book/86g7vij/
+- 重力系杀手误入忍界记实录 https://www.shenghuo988.com/book/86g7vhn/
+- 卷王后妈，八零养娃 https://www.shenghuo988.com/book/86g7vbp/
+- 这谁的沙雕二次元心声！ https://www.shenghuo988.com/book/86g7uj9/
+- 始乱终弃清冷公子后 https://www.shenghuo988.com/book/86g7tlu/
+- 将妹妹嫁给别人后 https://www.shenghuo988.com/book/86g7rne/
+- 穿书留子，在线苟命 https://www.shenghuo988.com/book/86g7pc4/
+- 偷香窃玉 https://www.shenghuo988.com/book/86g7ok5/
+- 一枝枝怨 https://www.shenghuo988.com/book/86g7mkm/
+- 幸村女友，但赛博除妖师 https://www.shenghuo988.com/book/86g7g3e/
+- 女巫异世界打工指南[西幻] https://www.shenghuo988.com/book/86g7fdh/
+- 标记母亲的前妻O后 https://www.shenghuo988.com/book/86g7dlp/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.shenghuo988.com/book/86g7atj/
+- 荒山安居日常 https://www.shenghuo988.com/book/86g7aot/
+- 人气反派的马甲演绎实录 https://www.shenghuo988.com/book/86g79cj/
+- 全民求生里不是这样的！ https://www.shenghuo988.com/book/86g76ml/
+- 异界求生从马甲开始 https://www.shenghuo988.com/book/86g74gp/
+- 道长，收收神通吧 https://www.shenghuo988.com/book/86g7466/
+- 欢迎光临，万世极乐 https://www.shenghuo988.com/book/86g6urp/
+- 我家民宿，古人抢着上班 https://www.shenghuo988.com/book/86g6oaa/
+- 春山慢 https://www.shenghuo988.com/book/86g6n0r/
+- 非人马甲与日俱增[升维] https://www.shenghuo988.com/book/86g6m44/
+- 全民求生：我在森林里当初级魔法师 https://www.shenghuo988.com/book/86g6lkq/
+- 渴肤症总裁的秘密情人 https://www.shenghuo988.com/book/86g6l6f/
+- 漂亮病弱直男缠药封建大爹 https://www.shenghuo988.com/book/86g6kr1/
+- 老子顶A，凭什么当皇妃！ https://www.shenghuo988.com/book/86g6k3d/
+- 悬刃之下 https://www.shenghuo988.com/book/86g6ii9/
+- 星海世界生存指南[无限] https://www.shenghuo988.com/book/86g6hhv/
+- 魔物堆里的人类幼崽 https://www.shenghuo988.com/book/86g5ml3/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shenghuo988.com/book/86g5mim/
+- [娱乐圈]过分美丽的她 https://www.shenghuo988.com/book/86g5mgt/
+- 天幕今天也在直播我搞基建 https://www.shenghuo988.com/book/86g5m5e/
+- 反派白月光不按剧情死[快穿] https://www.shenghuo988.com/book/86g5lrr/
+- 海岛求生：生活玩家种田囤货 https://www.shenghuo988.com/book/86g5lot/
+- 我是唯一地上神国 [赛诗会作品] https://www.shenghuo988.com/book/86g5kru/
+- 日化人生[科研] https://www.shenghuo988.com/book/86g5kr8/
+- 巨物致富：回乡开钓场 https://www.shenghuo988.com/book/86g5kq2/
+- 她是反派的背景板母亲 https://www.shenghuo988.com/book/86g5kcp/
+- 全民求生:从小木屋到魔法农场 https://www.shenghuo988.com/book/86g5k8j/
+- 清澈女大的六零年代 https://www.shenghuo988.com/book/86g5js3/
+- 大瑛弟国 https://www.shenghuo988.com/book/86g5jrg/
+- 五十年代港城日常 https://www.shenghuo988.com/book/86g5jhv/
+- 我有一座安全城 [赛诗会作品] https://www.shenghuo988.com/book/86g5jbs/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1360/index.md)
+- [最新热点小说](/site1360/newhot.md)
+- [人气小说](/site1360/b111.md)
+- [推荐小说](/site1360/recommend1.md)
+- [推荐小说列表](/site1360/recommend/index.md)
+- [热点小说](/site1360/hot/index.md)
+- [全本小说](/site1360/quanben/index.md)
+- [网站地图](/site1360/sitemap/index.md)
+- [标签](/site1360/tag/index.md)
+- [爱情小说](/site1360/category101/index.md)
+- [武侠小说](/site1360/category102/index.md)
+- [奇幻小说](/site1360/category103/index.md)
+- [仙侠小说](/site1360/category104/index.md)
+- [游戏小说](/site1360/category105/index.md)
+- [传奇小说](/site1360/category106/index.md)
+- [科幻小说](/site1360/category107/index.md)
+- [惊悚小说](/site1360/category109/index.md)
+- [悬疑小说](/site1360/category110/index.md)

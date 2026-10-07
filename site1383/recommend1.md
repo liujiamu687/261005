@@ -1,0 +1,182 @@
+
+# 紫竹原始小说 - 最新最全的小说文学网站
+
+更新时间：2026-10-05 03:03:10
+
+紫竹原始小说是一个专注于分享最新、最全的小说文学作品的网站。我们致力于为读者带来全新的阅读体验，欢迎访问我们的网站，尽情享受文学的魅力。 https://www.cnysxc.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.cnysxc.com/book/8ee0tlm/
+- 神棍六十年代再就业 https://www.cnysxc.com/book/8ee0tll/
+- 吉食已到 https://www.cnysxc.com/book/8ee0tlk/
+- 养媳欲离 https://www.cnysxc.com/book/8ee0tlj/
+- [综英美]这地图不对劲 https://www.cnysxc.com/book/8ee0tlh/
+- 浪漫至死也致死 https://www.cnysxc.com/book/8ee0tlg/
+- 那什么的小蜘蛛 https://www.cnysxc.com/book/8ee0tlf/
+- 黎明协奏曲 https://www.cnysxc.com/book/8ee0tle/
+- 少女暴君在乙游 https://www.cnysxc.com/book/8ee0tld/
+- 妖狐崽崽，但全家普通人 https://www.cnysxc.com/book/8ee0tlc/
+- 失忆后误把顶流对家当男朋友 https://www.cnysxc.com/book/8ee0tlb/
+- ［西游］我的饭馆通大唐 https://www.cnysxc.com/book/8ee0tla/
+- 心上春 https://www.cnysxc.com/book/8ee0tl8/
+- 漂亮知青说他是我未来老婆 https://www.cnysxc.com/book/8ee0tl7/
+- 论人间失格与血鬼术的适配性 https://www.cnysxc.com/book/8ee0tl6/
+- 穿书九零，老实嫂子要嫁人 https://www.cnysxc.com/book/8ee0tl5/
+- 路人攻今天救风尘了吗［快穿］ https://www.cnysxc.com/book/8ee0tl4/
+- 谁是真正的猎物？ https://www.cnysxc.com/book/8ee0tl3/
+- 橘子小狗只想打排球 https://www.cnysxc.com/book/8ee0tl2/
+- 龙傲天求我挖他仙骨 https://www.cnysxc.com/book/8ee0tl1/
+- 男二就是要给龙傲天当老婆的 https://www.cnysxc.com/book/8ee0tl0/
+- 在将军府任职男仆侍后 https://www.cnysxc.com/book/8ee0tkt/
+- 陪嫁后被迫成了通房 https://www.cnysxc.com/book/8ee0tkr/
+- 洞房夜，我和夫君一起翻车 https://www.cnysxc.com/book/8ee0tkq/
+- 谁家女主是野牦牛啊！ https://www.cnysxc.com/book/8ee0tkp/
+- 女装网骗到校草怎么办 https://www.cnysxc.com/book/8ee0tko/
+- 他怎么还不提分手？ https://www.cnysxc.com/book/8ee0tkn/
+- 胎穿到恶毒反派肚中 https://www.cnysxc.com/book/8ee0tkm/
+- 港城暴发户的败家妻[年代] https://www.cnysxc.com/book/8ee0tkk/
+- 超英都在阻止我黑化[综英美] https://www.cnysxc.com/book/8ee0tki/
+- 禁止勾搭黑化万人迷 https://www.cnysxc.com/book/8ee0tkh/
+- [诡秘之主]历史同人的神秘学用法 https://www.cnysxc.com/book/8ee0tkg/
+- 王妃求子记 https://www.cnysxc.com/book/8ee0tkf/
+- 笨蛋美人主动和亲后 https://www.cnysxc.com/book/8ee0tke/
+- 假装Daddy儿子翻车后 https://www.cnysxc.com/book/8ee0tkd/
+- 全天下都在求太子殿下别死！ https://www.cnysxc.com/book/8ee0tkc/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.cnysxc.com/book/8ee0tkb/
+- 真千金她一心向道 https://www.cnysxc.com/book/8ee0tka/
+- 穿成丫鬟，但绑定游戏面板 https://www.cnysxc.com/book/8ee0tk9/
+- 金光裘 https://www.cnysxc.com/book/8ee0tk8/
+- [全职高手]走错片场要怎么办 https://www.cnysxc.com/book/8ee0tk7/
+- 我心有憾不可平[历史直播] https://www.cnysxc.com/book/8ee0tk6/
+- 哥哥不是我的吗？[九零] https://www.cnysxc.com/book/8ee0tk5/
+- 今天被邪祟撅了吗？ https://www.cnysxc.com/book/8ee0tk4/
+- 被坏狗盯上了 https://www.cnysxc.com/book/8ee0tk3/
+- 哥，咱俩天下第一好 https://www.cnysxc.com/book/8ee0tk2/
+- 老板被我渣了两次？ https://www.cnysxc.com/book/8ee0tk1/
+- 拒婚后，和联姻对象闪婚了 https://www.cnysxc.com/book/8ee0tk0/
+- 无法攻略的他[娱乐圈] https://www.cnysxc.com/book/8ee0tjv/
+- 华夏卡牌，但亡国之君 https://www.cnysxc.com/book/8ee0tju/
+- 她柔弱不能自理 https://www.cnysxc.com/book/8ee0tjt/
+- 直播手术，外科天才打脸日常[重生] https://www.cnysxc.com/book/8ee0tjs/
+- 有限制体质的仙尊徒弟 https://www.cnysxc.com/book/8ee0tjr/
+- 谁要给暴君当狗啊？！ https://www.cnysxc.com/book/8ee0tjq/
+- 日向怎么通关忍界 https://www.cnysxc.com/book/8ee0tjp/
+- 重生不入东宫 https://www.cnysxc.com/book/8ee0tjo/
+- [全职高手]我家攻坚撒手没 https://www.cnysxc.com/book/8ee0tjn/
+- 破了剑道魁首的无情道后 https://www.cnysxc.com/book/8ee0tjm/
+- [综]恋与蜘蛛侠 https://www.cnysxc.com/book/8ee0tjl/
+- 一剑捅穿道侣后他变天道了 https://www.cnysxc.com/book/8ee0tjk/
+- 鼬系如何在鸥台生存 https://www.cnysxc.com/book/8ee0tjj/
+- 人鱼种草养毛茸茸 https://www.cnysxc.com/book/8ee0tji/
+- 和乙骨前辈网恋后 https://www.cnysxc.com/book/8ee0tjh/
+- [足球]被儿子队友求婚以后 https://www.cnysxc.com/book/8ee0tjg/
+- 致镜汀 https://www.cnysxc.com/book/8ee0tjf/
+- 戏意 https://www.cnysxc.com/book/8ee0tje/
+- 黑化超英抽卡中[综英美] https://www.cnysxc.com/book/8ee0tjd/
+- 宿傩妹妹今天也在艰难求生 https://www.cnysxc.com/book/8ee0thv/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.cnysxc.com/book/8ee0teh/
+- [娱乐圈]学医救不了性冷淡！ https://www.cnysxc.com/book/8ee0tee/
+- 这个替嫁让我来！ https://www.cnysxc.com/book/8ee0p27/
+- 康熙宠妃日常 https://www.cnysxc.com/book/8ee0irp/
+- 从1951开始 https://www.cnysxc.com/book/8ee0ipo/
+- 清穿女回来后[天幕] https://www.cnysxc.com/book/8ee0iph/
+- 天幕今天也在直播我搞基建 https://www.cnysxc.com/book/8ee0e6h/
+- 今天还不可以造反吗？？？ https://www.cnysxc.com/book/8ee07dn/
+- [足球]足坛人生模拟器 https://www.cnysxc.com/book/8ee04ld/
+- 喂，别睡了！ https://www.cnysxc.com/book/8ee0381/
+- 九零重组小家庭 https://www.cnysxc.com/book/8ee02lt/
+- 我老婆怎么是反派暴君 https://www.cnysxc.com/book/8ee001u/
+- 从维多利亚时代开始 https://www.cnysxc.com/book/8edvnav/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.cnysxc.com/book/8edvmul/
+- 昭暮 https://www.cnysxc.com/book/8edvjfc/
+- 食明 https://www.cnysxc.com/book/8edv8ir/
+- 诡话第一boss [赛诗会作品] https://www.cnysxc.com/book/8edv583/
+- 镇守神州，从万里长城开始 https://www.cnysxc.com/book/8edv42q/
+- [斗罗]你已有取死之道 https://www.cnysxc.com/book/8edv38s/
+- 反派白月光不按剧情死[快穿] https://www.cnysxc.com/book/8eduuuj/
+- 在这个圈子，叫“跟” https://www.cnysxc.com/book/8eduusj/
+- 被鬼怪宠爱的漂亮书生 https://www.cnysxc.com/book/8edutu8/
+- 社畜Beta也能被顶A觊觎吗 https://www.cnysxc.com/book/8eduri8/
+- 我真不想当魔头的师妹 https://www.cnysxc.com/book/8eduk82/
+- 青宁升仙录 https://www.cnysxc.com/book/8eduier/
+- 韩团绿卡不想忍了 https://www.cnysxc.com/book/8eduer5/
+- 被小蜘蛛听见心声后 https://www.cnysxc.com/book/8edubt4/
+- 在诡异世界扮演神明[快穿] https://www.cnysxc.com/book/8edubnm/
+- 哥你不能不要我 https://www.cnysxc.com/book/8edu9dg/
+- 社恐直播鉴宝，但带球跑 https://www.cnysxc.com/book/8edu869/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.cnysxc.com/book/8edu5ql/
+- 获得七个彩虹共感娃娃 https://www.cnysxc.com/book/8edu1lp/
+- 被迫臣服冰山顶级大小姐O https://www.cnysxc.com/book/8edu0ks/
+- 死遁后成了忍界白月光？ https://www.cnysxc.com/book/8edtuho/
+- 这谁的沙雕二次元心声！ https://www.cnysxc.com/book/8edtt37/
+- 过气男团ACE重生后 https://www.cnysxc.com/book/8edtsqo/
+- 言不由衷 https://www.cnysxc.com/book/8edtsnh/
+- 耀眼的他 https://www.cnysxc.com/book/8edtrur/
+- 始乱终弃清冷公子后 https://www.cnysxc.com/book/8edtndc/
+- 重力系杀手误入忍界记实录 https://www.cnysxc.com/book/8edtlsb/
+- 满级大佬成为养成系[娱乐圈] https://www.cnysxc.com/book/8edtkok/
+- 将妹妹嫁给别人后 https://www.cnysxc.com/book/8edtjk4/
+- 穿书留子，在线苟命 https://www.cnysxc.com/book/8edth9c/
+- 偷香窃玉 https://www.cnysxc.com/book/8edtg8r/
+- 一枝枝怨 https://www.cnysxc.com/book/8edtd30/
+- 女巫异世界打工指南[西幻] https://www.cnysxc.com/book/8edt8f6/
+- 魔物堆里的人类幼崽 https://www.cnysxc.com/book/8edt823/
+- 幸村女友，但赛博除妖师 https://www.cnysxc.com/book/8edt6cb/
+- 标记母亲的前妻O后 https://www.cnysxc.com/book/8edt671/
+- 全民求生里不是这样的！ https://www.cnysxc.com/book/8edt3lt/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.cnysxc.com/book/8edt3fg/
+- 荒山安居日常 https://www.cnysxc.com/book/8edt0na/
+- 穿进女儿国，误娶笨蛋美人 https://www.cnysxc.com/book/8edt09b/
+- 全民求生：我在森林里当初级魔法师 https://www.cnysxc.com/book/8edsvfa/
+- 欢迎光临，万世极乐 https://www.cnysxc.com/book/8edsq5u/
+- 异界求生从马甲开始 https://www.cnysxc.com/book/8edspec/
+- 道长，收收神通吧 https://www.cnysxc.com/book/8edsp2i/
+- 我家民宿，古人抢着上班 https://www.cnysxc.com/book/8edsf8r/
+- 渴肤症总裁的秘密情人 https://www.cnysxc.com/book/8edsf4t/
+- 非人马甲与日俱增[升维] https://www.cnysxc.com/book/8edsf4f/
+- 春山慢 https://www.cnysxc.com/book/8edsdsm/
+- 漂亮病弱直男缠药封建大爹 https://www.cnysxc.com/book/8edsarb/
+- 老子顶A，凭什么当皇妃！ https://www.cnysxc.com/book/8edsa87/
+- 悬刃之下 https://www.cnysxc.com/book/8edsa0i/
+- 在运动番当顶级Bking https://www.cnysxc.com/book/8eds8rb/
+- 星海世界生存指南[无限] https://www.cnysxc.com/book/8eds705/
+- 她是反派的背景板母亲 https://www.cnysxc.com/book/8edrccq/
+- 禁止限制文主角转职龙傲天 https://www.cnysxc.com/book/8edrc2d/
+- 十二星座请选择你的安全屋 https://www.cnysxc.com/book/8edrbo3/
+- 清澈女大的六零年代 https://www.cnysxc.com/book/8edrbl0/
+- 木叶RPG，恋爱系物语 https://www.cnysxc.com/book/8edrbjr/
+- 海岛求生：生活玩家种田囤货 https://www.cnysxc.com/book/8edrbas/
+- 人气反派的马甲演绎实录 https://www.cnysxc.com/book/8edrb5i/
+- 大瑛弟国 https://www.cnysxc.com/book/8edrb59/
+- [娱乐圈]过分美丽的她 https://www.cnysxc.com/book/8edrb3u/
+- 日化人生[科研] https://www.cnysxc.com/book/8edravu/
+- 巨物致富：回乡开钓场 https://www.cnysxc.com/book/8edrat5/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.cnysxc.com/book/8edraru/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.cnysxc.com/book/8edran6/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.cnysxc.com/book/8edraiu/
+- 卷王后妈，八零养娃 https://www.cnysxc.com/book/8edrai4/
+- 我有一座安全城 [赛诗会作品] https://www.cnysxc.com/book/8edrac5/
+- 星际团宠小人鱼 [赛诗会作品] https://www.cnysxc.com/book/8edr9sk/
+- 五十年代港城日常 https://www.cnysxc.com/book/8edr9g5/
+- 全民求生:从小木屋到魔法农场 https://www.cnysxc.com/book/8edr957/
+- 我是唯一地上神国 [赛诗会作品] https://www.cnysxc.com/book/8edr93s/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1383/index.md)
+- [最新热点小说](/site1383/newhot.md)
+- [人气小说](/site1383/b111.md)
+- [推荐小说](/site1383/recommend1.md)
+- [推荐小说列表](/site1383/recommend/index.md)
+- [热点小说](/site1383/hot/index.md)
+- [全本小说](/site1383/quanben/index.md)
+- [网站地图](/site1383/sitemap/index.md)
+- [标签](/site1383/tag/index.md)
+- [爱情小说](/site1383/category101/index.md)
+- [武侠小说](/site1383/category102/index.md)
+- [奇幻小说](/site1383/category103/index.md)
+- [仙侠小说](/site1383/category104/index.md)
+- [游戏小说](/site1383/category105/index.md)
+- [传奇小说](/site1383/category106/index.md)
+- [科幻小说](/site1383/category107/index.md)
+- [惊悚小说](/site1383/category109/index.md)
+- [悬疑小说](/site1383/category110/index.md)
