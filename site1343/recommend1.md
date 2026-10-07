@@ -1,0 +1,182 @@
+
+# 左叶小说网 - 书友最值得收藏的小说阅读平台
+
+更新时间：2026-10-05 03:04:52
+
+左叶小说网为读者提供了一个丰富多样的小说阅读体验，汇集了各类热门、经典以及新作小说资源，是书友们寻找好书的理想之地。 https://www.pusytgp.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.pusytgp.com/book/7pbovpq/
+- 直播手术，外科天才打脸日常[重生] https://www.pusytgp.com/book/7pbovpp/
+- 日向怎么通关忍界 https://www.pusytgp.com/book/7pbovpo/
+- 谁家女主是野牦牛啊！ https://www.pusytgp.com/book/7pbovpn/
+- 笨蛋美人主动和亲后 https://www.pusytgp.com/book/7pbovpm/
+- 全天下都在求太子殿下别死！ https://www.pusytgp.com/book/7pbovpl/
+- 老板被我渣了两次？ https://www.pusytgp.com/book/7pbovpk/
+- [诡秘之主]历史同人的神秘学用法 https://www.pusytgp.com/book/7pbovpj/
+- 我心有憾不可平[历史直播] https://www.pusytgp.com/book/7pbovph/
+- 少女暴君在乙游 https://www.pusytgp.com/book/7pbovpg/
+- 禁止勾搭黑化万人迷 https://www.pusytgp.com/book/7pbovpf/
+- [全职高手]我家攻坚撒手没 https://www.pusytgp.com/book/7pbovpe/
+- 超英都在阻止我黑化[综英美] https://www.pusytgp.com/book/7pbovpd/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.pusytgp.com/book/7pbovpc/
+- 无法攻略的他[娱乐圈] https://www.pusytgp.com/book/7pbovpb/
+- 心上春 https://www.pusytgp.com/book/7pbovpa/
+- 有限制体质的仙尊徒弟 https://www.pusytgp.com/book/7pbovp8/
+- 穿成丫鬟，但绑定游戏面板 https://www.pusytgp.com/book/7pbovp7/
+- 路人攻今天救风尘了吗［快穿］ https://www.pusytgp.com/book/7pbovp6/
+- 在将军府任职男仆侍后 https://www.pusytgp.com/book/7pbovp5/
+- 欢迎光临，万世极乐 https://www.pusytgp.com/book/7pbovp4/
+- 神棍六十年代再就业 https://www.pusytgp.com/book/7pbovp3/
+- 和乙骨前辈网恋后 https://www.pusytgp.com/book/7pbovp2/
+- 谁是真正的猎物？ https://www.pusytgp.com/book/7pbovp1/
+- 重生不入东宫 https://www.pusytgp.com/book/7pbovp0/
+- 人鱼种草养毛茸茸 https://www.pusytgp.com/book/7pbovov/
+- 哥哥不是我的吗？[九零] https://www.pusytgp.com/book/7pbovou/
+- 假装Daddy儿子翻车后 https://www.pusytgp.com/book/7pbovot/
+- 女装网骗到校草怎么办 https://www.pusytgp.com/book/7pbovos/
+- 戏意 https://www.pusytgp.com/book/7pbovor/
+- 王妃求子记 https://www.pusytgp.com/book/7pbovoq/
+- 妖狐崽崽，但全家普通人 https://www.pusytgp.com/book/7pbovop/
+- 吉食已到 https://www.pusytgp.com/book/7pbovoo/
+- 破了剑道魁首的无情道后 https://www.pusytgp.com/book/7pbovon/
+- 哥，咱俩天下第一好 https://www.pusytgp.com/book/7pbovom/
+- 穿进女儿国，误娶笨蛋美人 https://www.pusytgp.com/book/7pbovol/
+- 她柔弱不能自理 https://www.pusytgp.com/book/7pbovok/
+- 陪嫁后被迫成了通房 https://www.pusytgp.com/book/7pbovoj/
+- 拒婚后，和联姻对象闪婚了 https://www.pusytgp.com/book/7pbovoi/
+- 金光裘 https://www.pusytgp.com/book/7pbovoh/
+- 华夏卡牌，但亡国之君 https://www.pusytgp.com/book/7pbovog/
+- 胎穿到恶毒反派肚中 https://www.pusytgp.com/book/7pbovof/
+- 真千金她一心向道 https://www.pusytgp.com/book/7pbovod/
+- [综英美]这地图不对劲 https://www.pusytgp.com/book/7pbovoc/
+- 今天被邪祟撅了吗？ https://www.pusytgp.com/book/7pbovob/
+- 谁要给暴君当狗啊？！ https://www.pusytgp.com/book/7pbovoa/
+- 在运动番当顶级Bking https://www.pusytgp.com/book/7pbovo9/
+- 洞房夜，我和夫君一起翻车 https://www.pusytgp.com/book/7pbovo7/
+- 渴肤症总裁的秘密情人 https://www.pusytgp.com/book/7pbovo6/
+- 他怎么还不提分手？ https://www.pusytgp.com/book/7pbovo3/
+- 龙傲天求我挖他仙骨 https://www.pusytgp.com/book/7pbovo2/
+- 一剑捅穿道侣后他变天道了 https://www.pusytgp.com/book/7pbovo1/
+- 养媳欲离 https://www.pusytgp.com/book/7pbovo0/
+- 男二就是要给龙傲天当老婆的 https://www.pusytgp.com/book/7pbovnv/
+- 致镜汀 https://www.pusytgp.com/book/7pbovnu/
+- 失忆后误把顶流对家当男朋友 https://www.pusytgp.com/book/7pbovnt/
+- 黑化超英抽卡中[综英美] https://www.pusytgp.com/book/7pbovns/
+- 鼬系如何在鸥台生存 https://www.pusytgp.com/book/7pbovnr/
+- ［西游］我的饭馆通大唐 https://www.pusytgp.com/book/7pbovnq/
+- [综]恋与蜘蛛侠 https://www.pusytgp.com/book/7pbovnp/
+- 被坏狗盯上了 https://www.pusytgp.com/book/7pbovno/
+- 论人间失格与血鬼术的适配性 https://www.pusytgp.com/book/7pbovnn/
+- 漂亮知青说他是我未来老婆 https://www.pusytgp.com/book/7pbovnm/
+- 橘子小狗只想打排球 https://www.pusytgp.com/book/7pbovnl/
+- 那什么的小蜘蛛 https://www.pusytgp.com/book/7pbovnj/
+- [全职高手]走错片场要怎么办 https://www.pusytgp.com/book/7pbovni/
+- [足球]被儿子队友求婚以后 https://www.pusytgp.com/book/7pbovnh/
+- 穿书九零，老实嫂子要嫁人 https://www.pusytgp.com/book/7pbovng/
+- 浪漫至死也致死 https://www.pusytgp.com/book/7pbovnf/
+- 港城暴发户的败家妻[年代] https://www.pusytgp.com/book/7pbovne/
+- 黎明协奏曲 https://www.pusytgp.com/book/7pbovnd/
+- [娱乐圈]学医救不了性冷淡！ https://www.pusytgp.com/book/7pbovmv/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.pusytgp.com/book/7pbovl8/
+- 宿傩妹妹今天也在艰难求生 https://www.pusytgp.com/book/7pbovi7/
+- 从1951开始 https://www.pusytgp.com/book/7pbovgf/
+- 清穿女回来后[天幕] https://www.pusytgp.com/book/7pbovfm/
+- 这个替嫁让我来！ https://www.pusytgp.com/book/7pbovf5/
+- 康熙宠妃日常 https://www.pusytgp.com/book/7pbovd9/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.pusytgp.com/book/7pbouf5/
+- 十二星座请选择你的安全屋 https://www.pusytgp.com/book/7pboiqm/
+- 今天还不可以造反吗？？？ https://www.pusytgp.com/book/7pboio5/
+- 星际团宠小人鱼 [赛诗会作品] https://www.pusytgp.com/book/7pboe9n/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.pusytgp.com/book/7pboe7r/
+- 我老婆怎么是反派暴君 https://www.pusytgp.com/book/7pbocoo/
+- 九零重组小家庭 https://www.pusytgp.com/book/7pbo9nv/
+- 喂，别睡了！ https://www.pusytgp.com/book/7pbo9dd/
+- [足球]足坛人生模拟器 https://www.pusytgp.com/book/7pbo705/
+- 昭暮 https://www.pusytgp.com/book/7pbnq0p/
+- 从维多利亚时代开始 https://www.pusytgp.com/book/7pbnpd1/
+- 食明 https://www.pusytgp.com/book/7pbnaef/
+- 诡话第一boss [赛诗会作品] https://www.pusytgp.com/book/7pbn771/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.pusytgp.com/book/7pbn366/
+- 禁止限制文主角转职龙傲天 https://www.pusytgp.com/book/7pbn1li/
+- 镇守神州，从万里长城开始 https://www.pusytgp.com/book/7pbn1g7/
+- [斗罗]你已有取死之道 https://www.pusytgp.com/book/7pbn03d/
+- 被小蜘蛛听见心声后 https://www.pusytgp.com/book/7pbmte1/
+- 社畜Beta也能被顶A觊觎吗 https://www.pusytgp.com/book/7pbmrvg/
+- 反派白月光不按剧情死[快穿] https://www.pusytgp.com/book/7pbmp2m/
+- 我真不想当魔头的师妹 https://www.pusytgp.com/book/7pbmnne/
+- 青宁升仙录 https://www.pusytgp.com/book/7pbmib7/
+- 在诡异世界扮演神明[快穿] https://www.pusytgp.com/book/7pbm9qb/
+- 社恐直播鉴宝，但带球跑 https://www.pusytgp.com/book/7pbm6vt/
+- 获得七个彩虹共感娃娃 https://www.pusytgp.com/book/7pbm0nu/
+- 木叶RPG，恋爱系物语 https://www.pusytgp.com/book/7pbltvd/
+- 被迫臣服冰山顶级大小姐O https://www.pusytgp.com/book/7pblrlf/
+- 在这个圈子，叫“跟” https://www.pusytgp.com/book/7pblpkn/
+- 死遁后成了忍界白月光？ https://www.pusytgp.com/book/7pbloig/
+- 言不由衷 https://www.pusytgp.com/book/7pbln3b/
+- 被鬼怪宠爱的漂亮书生 https://www.pusytgp.com/book/7pblmrr/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.pusytgp.com/book/7pblmfv/
+- 始乱终弃清冷公子后 https://www.pusytgp.com/book/7pblm9g/
+- 哥你不能不要我 https://www.pusytgp.com/book/7pbllsf/
+- 过气男团ACE重生后 https://www.pusytgp.com/book/7pbllmm/
+- 耀眼的他 https://www.pusytgp.com/book/7pbll77/
+- 满级大佬成为养成系[娱乐圈] https://www.pusytgp.com/book/7pbll3g/
+- 重力系杀手误入忍界记实录 https://www.pusytgp.com/book/7pbljk5/
+- 这谁的沙雕二次元心声！ https://www.pusytgp.com/book/7pblhka/
+- 卷王后妈，八零养娃 https://www.pusytgp.com/book/7pblgvf/
+- 偷香窃玉 https://www.pusytgp.com/book/7pblc16/
+- 一枝枝怨 https://www.pusytgp.com/book/7pblaa9/
+- 将妹妹嫁给别人后 https://www.pusytgp.com/book/7pbla2t/
+- 女巫异世界打工指南[西幻] https://www.pusytgp.com/book/7pbl8de/
+- 穿书留子，在线苟命 https://www.pusytgp.com/book/7pbl6go/
+- 标记母亲的前妻O后 https://www.pusytgp.com/book/7pbl1st/
+- 荒山安居日常 https://www.pusytgp.com/book/7pbl0pj/
+- 韩团绿卡不想忍了 https://www.pusytgp.com/book/7pbl0ke/
+- 人气反派的马甲演绎实录 https://www.pusytgp.com/book/7pbktql/
+- 魔物堆里的人类幼崽 https://www.pusytgp.com/book/7pbkrgf/
+- 全民求生里不是这样的！ https://www.pusytgp.com/book/7pbkrbj/
+- 异界求生从马甲开始 https://www.pusytgp.com/book/7pbkr1a/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.pusytgp.com/book/7pbkqef/
+- 道长，收收神通吧 https://www.pusytgp.com/book/7pbkqdr/
+- 我家民宿，古人抢着上班 https://www.pusytgp.com/book/7pbkh15/
+- 春山慢 https://www.pusytgp.com/book/7pbkfin/
+- 老子顶A，凭什么当皇妃！ https://www.pusytgp.com/book/7pbke7q/
+- 非人马甲与日俱增[升维] https://www.pusytgp.com/book/7pbkdu3/
+- 全民求生：我在森林里当初级魔法师 https://www.pusytgp.com/book/7pbkchc/
+- 漂亮病弱直男缠药封建大爹 https://www.pusytgp.com/book/7pbkcaa/
+- 悬刃之下 https://www.pusytgp.com/book/7pbkalh/
+- 星海世界生存指南[无限] https://www.pusytgp.com/book/7pbka9n/
+- [娱乐圈]过分美丽的她 https://www.pusytgp.com/book/7pbjebb/
+- 海岛求生：生活玩家种田囤货 https://www.pusytgp.com/book/7pbje2o/
+- 日化人生[科研] https://www.pusytgp.com/book/7pbjdvq/
+- 大瑛弟国 https://www.pusytgp.com/book/7pbjdv0/
+- 天幕今天也在直播我搞基建 https://www.pusytgp.com/book/7pbjdt3/
+- 她是反派的背景板母亲 https://www.pusytgp.com/book/7pbjdg5/
+- 清澈女大的六零年代 https://www.pusytgp.com/book/7pbjd2h/
+- 五十年代港城日常 https://www.pusytgp.com/book/7pbjcvf/
+- 巨物致富：回乡开钓场 https://www.pusytgp.com/book/7pbjcqs/
+- 我是唯一地上神国 [赛诗会作品] https://www.pusytgp.com/book/7pbjc34/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.pusytgp.com/book/7pbjbu8/
+- 我有一座安全城 [赛诗会作品] https://www.pusytgp.com/book/7pbjbp1/
+- 全民求生:从小木屋到魔法农场 https://www.pusytgp.com/book/7pbjbo2/
+- 幸村女友，但赛博除妖师 https://www.pusytgp.com/book/7pbjbl6/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1343/index.md)
+- [最新热点小说](/site1343/newhot.md)
+- [人气小说](/site1343/b111.md)
+- [推荐小说](/site1343/recommend1.md)
+- [推荐小说列表](/site1343/recommend/index.md)
+- [热点小说](/site1343/hot/index.md)
+- [全本小说](/site1343/quanben/index.md)
+- [网站地图](/site1343/sitemap/index.md)
+- [标签](/site1343/tag/index.md)
+- [爱情小说](/site1343/category101/index.md)
+- [武侠小说](/site1343/category102/index.md)
+- [奇幻小说](/site1343/category103/index.md)
+- [仙侠小说](/site1343/category104/index.md)
+- [游戏小说](/site1343/category105/index.md)
+- [传奇小说](/site1343/category106/index.md)
+- [科幻小说](/site1343/category107/index.md)
+- [惊悚小说](/site1343/category109/index.md)
+- [悬疑小说](/site1343/category110/index.md)

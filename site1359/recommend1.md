@@ -1,0 +1,182 @@
+
+# 笔架中文小说_书友必备的无弹窗小说阅读网
+
+更新时间：2026-10-05 03:02:54
+
+笔架中文小说致力于打造国内最权威免费小说阅读网, 提供小说在线阅读, 小说TXT下载, 网站页面清爽简洁是广大网络小说爱好者必备的小说阅读网。 https://www.bijia188.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.bijia188.com/book/6toln26/
+- 华夏卡牌，但亡国之君 https://www.bijia188.com/book/6toln24/
+- 全天下都在求太子殿下别死！ https://www.bijia188.com/book/6toln23/
+- 神棍六十年代再就业 https://www.bijia188.com/book/6toln1v/
+- 无法攻略的他[娱乐圈] https://www.bijia188.com/book/6toln1t/
+- 今天被邪祟撅了吗？ https://www.bijia188.com/book/6toln1q/
+- 她柔弱不能自理 https://www.bijia188.com/book/6toln1p/
+- 日向怎么通关忍界 https://www.bijia188.com/book/6toln1k/
+- [综]恋与蜘蛛侠 https://www.bijia188.com/book/6toln1i/
+- 穿成丫鬟，但绑定游戏面板 https://www.bijia188.com/book/6toln1d/
+- [全职高手]走错片场要怎么办 https://www.bijia188.com/book/6toln19/
+- 金光裘 https://www.bijia188.com/book/6toln17/
+- 真千金她一心向道 https://www.bijia188.com/book/6toln16/
+- 橘子小狗只想打排球 https://www.bijia188.com/book/6toln15/
+- 戏意 https://www.bijia188.com/book/6toln13/
+- 港城暴发户的败家妻[年代] https://www.bijia188.com/book/6toln12/
+- 禁止勾搭黑化万人迷 https://www.bijia188.com/book/6toln0q/
+- 女装网骗到校草怎么办 https://www.bijia188.com/book/6toln0n/
+- 男二就是要给龙傲天当老婆的 https://www.bijia188.com/book/6toln0k/
+- 穿书九零，老实嫂子要嫁人 https://www.bijia188.com/book/6toln0j/
+- 陪嫁后被迫成了通房 https://www.bijia188.com/book/6toln0g/
+- 直播手术，外科天才打脸日常[重生] https://www.bijia188.com/book/6toln0c/
+- 重生不入东宫 https://www.bijia188.com/book/6toln0b/
+- 在将军府任职男仆侍后 https://www.bijia188.com/book/6toln0a/
+- 失忆后误把顶流对家当男朋友 https://www.bijia188.com/book/6toln04/
+- 穿进女儿国，误娶笨蛋美人 https://www.bijia188.com/book/6toln01/
+- [全职高手]我家攻坚撒手没 https://www.bijia188.com/book/6tolmvv/
+- 浪漫至死也致死 https://www.bijia188.com/book/6tolmvt/
+- 黎明协奏曲 https://www.bijia188.com/book/6tolmvo/
+- 心上春 https://www.bijia188.com/book/6tolmvm/
+- 老板被我渣了两次？ https://www.bijia188.com/book/6tolmvh/
+- 被坏狗盯上了 https://www.bijia188.com/book/6tolmvf/
+- 漂亮知青说他是我未来老婆 https://www.bijia188.com/book/6tolmvd/
+- 一剑捅穿道侣后他变天道了 https://www.bijia188.com/book/6tolmvb/
+- [足球]被儿子队友求婚以后 https://www.bijia188.com/book/6tolmv8/
+- 超英都在阻止我黑化[综英美] https://www.bijia188.com/book/6tolmv7/
+- 人鱼种草养毛茸茸 https://www.bijia188.com/book/6tolmv5/
+- 谁家女主是野牦牛啊！ https://www.bijia188.com/book/6tolmv3/
+- 少女暴君在乙游 https://www.bijia188.com/book/6tolmv0/
+- 论人间失格与血鬼术的适配性 https://www.bijia188.com/book/6tolmuu/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.bijia188.com/book/6tolmut/
+- ［西游］我的饭馆通大唐 https://www.bijia188.com/book/6tolmur/
+- 谁要给暴君当狗啊？！ https://www.bijia188.com/book/6tolmuq/
+- 妖狐崽崽，但全家普通人 https://www.bijia188.com/book/6tolmuo/
+- 鼬系如何在鸥台生存 https://www.bijia188.com/book/6tolmul/
+- [诡秘之主]历史同人的神秘学用法 https://www.bijia188.com/book/6tolmuk/
+- 王妃求子记 https://www.bijia188.com/book/6tolmuj/
+- 哥，咱俩天下第一好 https://www.bijia188.com/book/6tolmuf/
+- 路人攻今天救风尘了吗［快穿］ https://www.bijia188.com/book/6tolmud/
+- 吉食已到 https://www.bijia188.com/book/6tolmub/
+- [综英美]这地图不对劲 https://www.bijia188.com/book/6tolmu8/
+- 我心有憾不可平[历史直播] https://www.bijia188.com/book/6tolmu6/
+- 哥哥不是我的吗？[九零] https://www.bijia188.com/book/6tolmu3/
+- 养媳欲离 https://www.bijia188.com/book/6tolmu2/
+- 拒婚后，和联姻对象闪婚了 https://www.bijia188.com/book/6tolmu0/
+- 谁是真正的猎物？ https://www.bijia188.com/book/6tolmts/
+- 笨蛋美人主动和亲后 https://www.bijia188.com/book/6tolmtr/
+- 致镜汀 https://www.bijia188.com/book/6tolmtk/
+- 在运动番当顶级Bking https://www.bijia188.com/book/6tolmti/
+- 破了剑道魁首的无情道后 https://www.bijia188.com/book/6tolmtg/
+- 那什么的小蜘蛛 https://www.bijia188.com/book/6tolmtf/
+- 假装Daddy儿子翻车后 https://www.bijia188.com/book/6tolmte/
+- 黑化超英抽卡中[综英美] https://www.bijia188.com/book/6tolmta/
+- 洞房夜，我和夫君一起翻车 https://www.bijia188.com/book/6tolmt4/
+- 他怎么还不提分手？ https://www.bijia188.com/book/6tolmt3/
+- 有限制体质的仙尊徒弟 https://www.bijia188.com/book/6tolmt1/
+- 胎穿到恶毒反派肚中 https://www.bijia188.com/book/6tolmsq/
+- 和乙骨前辈网恋后 https://www.bijia188.com/book/6tolmso/
+- 龙傲天求我挖他仙骨 https://www.bijia188.com/book/6tolmsn/
+- [娱乐圈]学医救不了性冷淡！ https://www.bijia188.com/book/6tolmse/
+- 宿傩妹妹今天也在艰难求生 https://www.bijia188.com/book/6tolms5/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.bijia188.com/book/6tolmrs/
+- 康熙宠妃日常 https://www.bijia188.com/book/6tolmok/
+- 这个替嫁让我来！ https://www.bijia188.com/book/6tolmlv/
+- 从1951开始 https://www.bijia188.com/book/6tolmln/
+- 清穿女回来后[天幕] https://www.bijia188.com/book/6tolml2/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.bijia188.com/book/6tola78/
+- 今天还不可以造反吗？？？ https://www.bijia188.com/book/6tol4p1/
+- 喂，别睡了！ https://www.bijia188.com/book/6tokvbb/
+- 九零重组小家庭 https://www.bijia188.com/book/6tokv1s/
+- 我老婆怎么是反派暴君 https://www.bijia188.com/book/6tokul5/
+- [足球]足坛人生模拟器 https://www.bijia188.com/book/6toku3u/
+- 十二星座请选择你的安全屋 https://www.bijia188.com/book/6tokokr/
+- 从维多利亚时代开始 https://www.bijia188.com/book/6tokgmh/
+- 昭暮 https://www.bijia188.com/book/6tokeoj/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.bijia188.com/book/6tokb0s/
+- 星际团宠小人鱼 [赛诗会作品] https://www.bijia188.com/book/6tokb0f/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.bijia188.com/book/6tok3td/
+- 食明 https://www.bijia188.com/book/6tok1pe/
+- 诡话第一boss [赛诗会作品] https://www.bijia188.com/book/6tojugq/
+- 镇守神州，从万里长城开始 https://www.bijia188.com/book/6tojqk1/
+- 禁止限制文主角转职龙傲天 https://www.bijia188.com/book/6tojo2i/
+- [斗罗]你已有取死之道 https://www.bijia188.com/book/6tojmg9/
+- 社畜Beta也能被顶A觊觎吗 https://www.bijia188.com/book/6tojjgt/
+- 我真不想当魔头的师妹 https://www.bijia188.com/book/6tojd7q/
+- 青宁升仙录 https://www.bijia188.com/book/6tojab2/
+- 在这个圈子，叫“跟” https://www.bijia188.com/book/6toja0d/
+- 在诡异世界扮演神明[快穿] https://www.bijia188.com/book/6toj2ml/
+- 社恐直播鉴宝，但带球跑 https://www.bijia188.com/book/6toj157/
+- 被鬼怪宠爱的漂亮书生 https://www.bijia188.com/book/6toj0t6/
+- 韩团绿卡不想忍了 https://www.bijia188.com/book/6toj0hd/
+- 获得七个彩虹共感娃娃 https://www.bijia188.com/book/6toiobk/
+- 被迫臣服冰山顶级大小姐O https://www.bijia188.com/book/6toim7t/
+- 木叶RPG，恋爱系物语 https://www.bijia188.com/book/6toil7c/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.bijia188.com/book/6toikrk/
+- 死遁后成了忍界白月光？ https://www.bijia188.com/book/6toijvd/
+- 耀眼的他 https://www.bijia188.com/book/6toiisl/
+- 过气男团ACE重生后 https://www.bijia188.com/book/6toihm6/
+- 被小蜘蛛听见心声后 https://www.bijia188.com/book/6toig6t/
+- 言不由衷 https://www.bijia188.com/book/6toifvn/
+- 哥你不能不要我 https://www.bijia188.com/book/6toifmu/
+- 这谁的沙雕二次元心声！ https://www.bijia188.com/book/6toienn/
+- 卷王后妈，八零养娃 https://www.bijia188.com/book/6toidef/
+- 始乱终弃清冷公子后 https://www.bijia188.com/book/6toidbk/
+- 满级大佬成为养成系[娱乐圈] https://www.bijia188.com/book/6toicht/
+- 重力系杀手误入忍界记实录 https://www.bijia188.com/book/6toichc/
+- 将妹妹嫁给别人后 https://www.bijia188.com/book/6toiasj/
+- 穿书留子，在线苟命 https://www.bijia188.com/book/6toi73j/
+- 偷香窃玉 https://www.bijia188.com/book/6toi6q5/
+- 一枝枝怨 https://www.bijia188.com/book/6toi45o/
+- 幸村女友，但赛博除妖师 https://www.bijia188.com/book/6tohva2/
+- 女巫异世界打工指南[西幻] https://www.bijia188.com/book/6tohv1p/
+- 标记母亲的前妻O后 https://www.bijia188.com/book/6tohsg5/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.bijia188.com/book/6tohpi9/
+- 人气反派的马甲演绎实录 https://www.bijia188.com/book/6toho2d/
+- 荒山安居日常 https://www.bijia188.com/book/6tohnjr/
+- 全民求生里不是这样的！ https://www.bijia188.com/book/6tohlm9/
+- 道长，收收神通吧 https://www.bijia188.com/book/6tohk7c/
+- 异界求生从马甲开始 https://www.bijia188.com/book/6tohjmb/
+- 欢迎光临，万世极乐 https://www.bijia188.com/book/6tohd82/
+- 春山慢 https://www.bijia188.com/book/6toh8dc/
+- 我家民宿，古人抢着上班 https://www.bijia188.com/book/6toh868/
+- 全民求生：我在森林里当初级魔法师 https://www.bijia188.com/book/6toh5ou/
+- 老子顶A，凭什么当皇妃！ https://www.bijia188.com/book/6toh51l/
+- 渴肤症总裁的秘密情人 https://www.bijia188.com/book/6toh4nk/
+- 非人马甲与日俱增[升维] https://www.bijia188.com/book/6toh3dt/
+- 漂亮病弱直男缠药封建大爹 https://www.bijia188.com/book/6toh371/
+- 悬刃之下 https://www.bijia188.com/book/6toh2qm/
+- 星海世界生存指南[无限] https://www.bijia188.com/book/6toh2j2/
+- 海岛求生：生活玩家种田囤货 https://www.bijia188.com/book/6tog5ji/
+- [娱乐圈]过分美丽的她 https://www.bijia188.com/book/6tog56i/
+- 清澈女大的六零年代 https://www.bijia188.com/book/6tog4ek/
+- 全民求生:从小木屋到魔法农场 https://www.bijia188.com/book/6tog4a1/
+- 我有一座安全城 [赛诗会作品] https://www.bijia188.com/book/6tog44v/
+- 反派白月光不按剧情死[快穿] https://www.bijia188.com/book/6tog43k/
+- 魔物堆里的人类幼崽 https://www.bijia188.com/book/6tog3p0/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.bijia188.com/book/6tog3lg/
+- 我是唯一地上神国 [赛诗会作品] https://www.bijia188.com/book/6tog3i4/
+- 日化人生[科研] https://www.bijia188.com/book/6tog3d1/
+- 大瑛弟国 https://www.bijia188.com/book/6tog3aa/
+- 她是反派的背景板母亲 https://www.bijia188.com/book/6tog2t2/
+- 巨物致富：回乡开钓场 https://www.bijia188.com/book/6tog2kh/
+- 天幕今天也在直播我搞基建 https://www.bijia188.com/book/6tog2kc/
+- 五十年代港城日常 https://www.bijia188.com/book/6tog2fk/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1359/index.md)
+- [最新热点小说](/site1359/newhot.md)
+- [人气小说](/site1359/b111.md)
+- [推荐小说](/site1359/recommend1.md)
+- [推荐小说列表](/site1359/recommend/index.md)
+- [热点小说](/site1359/hot/index.md)
+- [全本小说](/site1359/quanben/index.md)
+- [网站地图](/site1359/sitemap/index.md)
+- [标签](/site1359/tag/index.md)
+- [爱情小说](/site1359/category101/index.md)
+- [武侠小说](/site1359/category102/index.md)
+- [奇幻小说](/site1359/category103/index.md)
+- [仙侠小说](/site1359/category104/index.md)
+- [游戏小说](/site1359/category105/index.md)
+- [传奇小说](/site1359/category106/index.md)
+- [科幻小说](/site1359/category107/index.md)
+- [惊悚小说](/site1359/category109/index.md)
+- [悬疑小说](/site1359/category110/index.md)

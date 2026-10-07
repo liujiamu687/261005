@@ -1,0 +1,182 @@
+
+# 顶点小说 - 无广告无弹窗在线小说阅读网站
+
+更新时间：2026-10-05 03:05:53
+
+顶点小说致力于提供一个无广告、无弹窗干扰的高质量在线小说阅读体验。支持多种类型的小说在线阅读与TXT格式下载，界面设计简洁友好。 https://www.wangrn.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.wangrn.com/book/4bbojs4/
+- 路人攻今天救风尘了吗［快穿］ https://www.wangrn.com/book/4bbojs2/
+- ［西游］我的饭馆通大唐 https://www.wangrn.com/book/4bbojs1/
+- 哥，咱俩天下第一好 https://www.wangrn.com/book/4bbojrt/
+- 华夏卡牌，但亡国之君 https://www.wangrn.com/book/4bbojrs/
+- 今天被邪祟撅了吗？ https://www.wangrn.com/book/4bbojrp/
+- 一剑捅穿道侣后他变天道了 https://www.wangrn.com/book/4bbojrl/
+- 禁止勾搭黑化万人迷 https://www.wangrn.com/book/4bbojrg/
+- 女装网骗到校草怎么办 https://www.wangrn.com/book/4bbojre/
+- 无法攻略的他[娱乐圈] https://www.wangrn.com/book/4bbojrd/
+- [全职高手]走错片场要怎么办 https://www.wangrn.com/book/4bbojra/
+- 男二就是要给龙傲天当老婆的 https://www.wangrn.com/book/4bbojr8/
+- 港城暴发户的败家妻[年代] https://www.wangrn.com/book/4bbojr5/
+- 重生不入东宫 https://www.wangrn.com/book/4bbojr1/
+- 神棍六十年代再就业 https://www.wangrn.com/book/4bbojqu/
+- 在将军府任职男仆侍后 https://www.wangrn.com/book/4bbojqt/
+- 谁家女主是野牦牛啊！ https://www.wangrn.com/book/4bbojqq/
+- 有限制体质的仙尊徒弟 https://www.wangrn.com/book/4bbojqp/
+- [综]恋与蜘蛛侠 https://www.wangrn.com/book/4bbojqk/
+- [全职高手]我家攻坚撒手没 https://www.wangrn.com/book/4bbojqi/
+- 穿成丫鬟，但绑定游戏面板 https://www.wangrn.com/book/4bbojqg/
+- 橘子小狗只想打排球 https://www.wangrn.com/book/4bbojq3/
+- 漂亮知青说他是我未来老婆 https://www.wangrn.com/book/4bbojq2/
+- 吉食已到 https://www.wangrn.com/book/4bbojq0/
+- 那什么的小蜘蛛 https://www.wangrn.com/book/4bbojpu/
+- 失忆后误把顶流对家当男朋友 https://www.wangrn.com/book/4bbojps/
+- 直播手术，外科天才打脸日常[重生] https://www.wangrn.com/book/4bbojpr/
+- 破了剑道魁首的无情道后 https://www.wangrn.com/book/4bbojpp/
+- 笨蛋美人主动和亲后 https://www.wangrn.com/book/4bbojpm/
+- 心上春 https://www.wangrn.com/book/4bbojpl/
+- 日向怎么通关忍界 https://www.wangrn.com/book/4bbojpj/
+- [诡秘之主]历史同人的神秘学用法 https://www.wangrn.com/book/4bbojpi/
+- 洞房夜，我和夫君一起翻车 https://www.wangrn.com/book/4bbojpc/
+- 我心有憾不可平[历史直播] https://www.wangrn.com/book/4bbojpa/
+- [足球]被儿子队友求婚以后 https://www.wangrn.com/book/4bbojp7/
+- 和乙骨前辈网恋后 https://www.wangrn.com/book/4bbojp4/
+- 假装Daddy儿子翻车后 https://www.wangrn.com/book/4bbojp1/
+- 龙傲天求我挖他仙骨 https://www.wangrn.com/book/4bbojot/
+- 陪嫁后被迫成了通房 https://www.wangrn.com/book/4bbojos/
+- 被坏狗盯上了 https://www.wangrn.com/book/4bbojop/
+- 她柔弱不能自理 https://www.wangrn.com/book/4bbojon/
+- [综英美]这地图不对劲 https://www.wangrn.com/book/4bbojok/
+- 金光裘 https://www.wangrn.com/book/4bbojoh/
+- 胎穿到恶毒反派肚中 https://www.wangrn.com/book/4bbojog/
+- 妖狐崽崽，但全家普通人 https://www.wangrn.com/book/4bbojob/
+- 老板被我渣了两次？ https://www.wangrn.com/book/4bbojo8/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.wangrn.com/book/4bbojo7/
+- 谁要给暴君当狗啊？！ https://www.wangrn.com/book/4bbojnv/
+- 少女暴君在乙游 https://www.wangrn.com/book/4bbojns/
+- 超英都在阻止我黑化[综英美] https://www.wangrn.com/book/4bbojnr/
+- 人鱼种草养毛茸茸 https://www.wangrn.com/book/4bbojnq/
+- 黎明协奏曲 https://www.wangrn.com/book/4bbojnm/
+- 戏意 https://www.wangrn.com/book/4bbojnl/
+- 论人间失格与血鬼术的适配性 https://www.wangrn.com/book/4bbojnj/
+- 拒婚后，和联姻对象闪婚了 https://www.wangrn.com/book/4bbojnh/
+- 养媳欲离 https://www.wangrn.com/book/4bbojne/
+- 王妃求子记 https://www.wangrn.com/book/4bbojnd/
+- 哥哥不是我的吗？[九零] https://www.wangrn.com/book/4bbojna/
+- 真千金她一心向道 https://www.wangrn.com/book/4bbojn9/
+- 他怎么还不提分手？ https://www.wangrn.com/book/4bbojn8/
+- 穿书九零，老实嫂子要嫁人 https://www.wangrn.com/book/4bbojn5/
+- 黑化超英抽卡中[综英美] https://www.wangrn.com/book/4bbojn4/
+- 鼬系如何在鸥台生存 https://www.wangrn.com/book/4bbojn2/
+- 谁是真正的猎物？ https://www.wangrn.com/book/4bbojmv/
+- 致镜汀 https://www.wangrn.com/book/4bbojms/
+- [娱乐圈]学医救不了性冷淡！ https://www.wangrn.com/book/4bboj1c/
+- 宿傩妹妹今天也在艰难求生 https://www.wangrn.com/book/4bboj03/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.wangrn.com/book/4bboiut/
+- 这个替嫁让我来！ https://www.wangrn.com/book/4bboeli/
+- 康熙宠妃日常 https://www.wangrn.com/book/4bbo2n5/
+- 清穿女回来后[天幕] https://www.wangrn.com/book/4bbo2mt/
+- 从1951开始 https://www.wangrn.com/book/4bbo2iu/
+- 天幕今天也在直播我搞基建 https://www.wangrn.com/book/4bbo2e2/
+- 今天还不可以造反吗？？？ https://www.wangrn.com/book/4bbnsoj/
+- [足球]足坛人生模拟器 https://www.wangrn.com/book/4bbnqff/
+- 喂，别睡了！ https://www.wangrn.com/book/4bbnoml/
+- 我老婆怎么是反派暴君 https://www.wangrn.com/book/4bbnlb8/
+- 从维多利亚时代开始 https://www.wangrn.com/book/4bbnd6a/
+- 昭暮 https://www.wangrn.com/book/4bbn922/
+- 九零重组小家庭 https://www.wangrn.com/book/4bbn84l/
+- 食明 https://www.wangrn.com/book/4bbmuln/
+- 诡话第一boss [赛诗会作品] https://www.wangrn.com/book/4bbmrgu/
+- 在这个圈子，叫“跟” https://www.wangrn.com/book/4bbmqj4/
+- 镇守神州，从万里长城开始 https://www.wangrn.com/book/4bbmq9q/
+- [斗罗]你已有取死之道 https://www.wangrn.com/book/4bbmp90/
+- 被鬼怪宠爱的漂亮书生 https://www.wangrn.com/book/4bbmobu/
+- 反派白月光不按剧情死[快穿] https://www.wangrn.com/book/4bbmnd7/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.wangrn.com/book/4bbmmlp/
+- 全天下都在求太子殿下别死！ https://www.wangrn.com/book/4bbmmk1/
+- 浪漫至死也致死 https://www.wangrn.com/book/4bbmlq4/
+- 社畜Beta也能被顶A觊觎吗 https://www.wangrn.com/book/4bbmfoj/
+- 被小蜘蛛听见心声后 https://www.wangrn.com/book/4bbmb1b/
+- 我真不想当魔头的师妹 https://www.wangrn.com/book/4bbma30/
+- 韩团绿卡不想忍了 https://www.wangrn.com/book/4bbm8vn/
+- 青宁升仙录 https://www.wangrn.com/book/4bbm7nm/
+- 在诡异世界扮演神明[快穿] https://www.wangrn.com/book/4bbm4r3/
+- 哥你不能不要我 https://www.wangrn.com/book/4bbm33o/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.wangrn.com/book/4bbm2h6/
+- 社恐直播鉴宝，但带球跑 https://www.wangrn.com/book/4bblv0v/
+- 获得七个彩虹共感娃娃 https://www.wangrn.com/book/4bblp8n/
+- 死遁后成了忍界白月光？ https://www.wangrn.com/book/4bbln89/
+- 过气男团ACE重生后 https://www.wangrn.com/book/4bbllob/
+- 言不由衷 https://www.wangrn.com/book/4bblll8/
+- 被迫臣服冰山顶级大小姐O https://www.wangrn.com/book/4bblknt/
+- 耀眼的他 https://www.wangrn.com/book/4bblj78/
+- 这谁的沙雕二次元心声！ https://www.wangrn.com/book/4bblj66/
+- 重力系杀手误入忍界记实录 https://www.wangrn.com/book/4bblgch/
+- 始乱终弃清冷公子后 https://www.wangrn.com/book/4bblbtr/
+- 满级大佬成为养成系[娱乐圈] https://www.wangrn.com/book/4bblbng/
+- 穿书留子，在线苟命 https://www.wangrn.com/book/4bbl8eo/
+- 偷香窃玉 https://www.wangrn.com/book/4bbl6de/
+- 一枝枝怨 https://www.wangrn.com/book/4bbl3oe/
+- 魔物堆里的人类幼崽 https://www.wangrn.com/book/4bbl28u/
+- 幸村女友，但赛博除妖师 https://www.wangrn.com/book/4bbkv6h/
+- 女巫异世界打工指南[西幻] https://www.wangrn.com/book/4bbku84/
+- 标记母亲的前妻O后 https://www.wangrn.com/book/4bbkqe5/
+- 全民求生里不是这样的！ https://www.wangrn.com/book/4bbkpha/
+- 穿进女儿国，误娶笨蛋美人 https://www.wangrn.com/book/4bbko01/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.wangrn.com/book/4bbknk5/
+- 欢迎光临，万世极乐 https://www.wangrn.com/book/4bbkld3/
+- 荒山安居日常 https://www.wangrn.com/book/4bbkl5o/
+- 全民求生：我在森林里当初级魔法师 https://www.wangrn.com/book/4bbkkkd/
+- 异界求生从马甲开始 https://www.wangrn.com/book/4bbkh8u/
+- 道长，收收神通吧 https://www.wangrn.com/book/4bbkgon/
+- 将妹妹嫁给别人后 https://www.wangrn.com/book/4bbkf6a/
+- 十二星座请选择你的安全屋 https://www.wangrn.com/book/4bbka4n/
+- 春山慢 https://www.wangrn.com/book/4bbk4d0/
+- 我家民宿，古人抢着上班 https://www.wangrn.com/book/4bbk3ll/
+- 渴肤症总裁的秘密情人 https://www.wangrn.com/book/4bbk3h6/
+- 非人马甲与日俱增[升维] https://www.wangrn.com/book/4bbk2sq/
+- 老子顶A，凭什么当皇妃！ https://www.wangrn.com/book/4bbk2q7/
+- 悬刃之下 https://www.wangrn.com/book/4bbk2db/
+- 漂亮病弱直男缠药封建大爹 https://www.wangrn.com/book/4bbk1qs/
+- 在运动番当顶级Bking https://www.wangrn.com/book/4bbjtrv/
+- 星海世界生存指南[无限] https://www.wangrn.com/book/4bbjt1i/
+- 她是反派的背景板母亲 https://www.wangrn.com/book/4bbj2h2/
+- 清澈女大的六零年代 https://www.wangrn.com/book/4bbj2ga/
+- 卷王后妈，八零养娃 https://www.wangrn.com/book/4bbj1ug/
+- 禁止限制文主角转职龙傲天 https://www.wangrn.com/book/4bbj1tr/
+- 全民求生:从小木屋到魔法农场 https://www.wangrn.com/book/4bbj1rf/
+- 人气反派的马甲演绎实录 https://www.wangrn.com/book/4bbj1q4/
+- 海岛求生：生活玩家种田囤货 https://www.wangrn.com/book/4bbj1oh/
+- 日化人生[科研] https://www.wangrn.com/book/4bbj1og/
+- 我是唯一地上神国 [赛诗会作品] https://www.wangrn.com/book/4bbj0em/
+- [娱乐圈]过分美丽的她 https://www.wangrn.com/book/4bbj04k/
+- 五十年代港城日常 https://www.wangrn.com/book/4bbj03e/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wangrn.com/book/4bbj01f/
+- 木叶RPG，恋爱系物语 https://www.wangrn.com/book/4bbivvl/
+- 大瑛弟国 https://www.wangrn.com/book/4bbivvh/
+- 我有一座安全城 [赛诗会作品] https://www.wangrn.com/book/4bbivvc/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.wangrn.com/book/4bbivq7/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.wangrn.com/book/4bbivmu/
+- 巨物致富：回乡开钓场 https://www.wangrn.com/book/4bbivj3/
+- 星际团宠小人鱼 [赛诗会作品] https://www.wangrn.com/book/4bbivbk/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1408/index.md)
+- [最新热点小说](/site1408/newhot.md)
+- [人气小说](/site1408/b111.md)
+- [推荐小说](/site1408/recommend1.md)
+- [推荐小说列表](/site1408/recommend/index.md)
+- [热点小说](/site1408/hot/index.md)
+- [全本小说](/site1408/quanben/index.md)
+- [网站地图](/site1408/sitemap/index.md)
+- [标签](/site1408/tag/index.md)
+- [爱情小说](/site1408/category101/index.md)
+- [武侠小说](/site1408/category102/index.md)
+- [奇幻小说](/site1408/category103/index.md)
+- [仙侠小说](/site1408/category104/index.md)
+- [游戏小说](/site1408/category105/index.md)
+- [传奇小说](/site1408/category106/index.md)
+- [科幻小说](/site1408/category107/index.md)
+- [惊悚小说](/site1408/category109/index.md)
+- [悬疑小说](/site1408/category110/index.md)

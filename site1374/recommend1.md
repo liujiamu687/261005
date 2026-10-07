@@ -1,0 +1,182 @@
+
+# 看居中文网_免费小说在线阅读|无弹窗广告值得收藏
+
+更新时间：2026-10-05 03:03:59
+
+看居中文网是最热门的免费小说网站，提供包括但不限于玄幻、都市、言情等多种类型的小说在线阅读服务。本站实时更新小说最新章节列表，拥有全面的小说排行榜，致力于为读者提供一个干净舒适的阅读环境，无弹窗广告干扰，是您寻找好书的理想之地。 https://www.kanju688.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.kanju688.com/book/pb0bk6/
+- 穿成丫鬟，但绑定游戏面板 https://www.kanju688.com/book/pb0bk5/
+- 那什么的小蜘蛛 https://www.kanju688.com/book/pb0bk3/
+- 女装网骗到校草怎么办 https://www.kanju688.com/book/pb0bjv/
+- 超英都在阻止我黑化[综英美] https://www.kanju688.com/book/pb0bjs/
+- 一剑捅穿道侣后他变天道了 https://www.kanju688.com/book/pb0bjq/
+- 胎穿到恶毒反派肚中 https://www.kanju688.com/book/pb0bjn/
+- 全天下都在求太子殿下别死！ https://www.kanju688.com/book/pb0bjl/
+- 今天被邪祟撅了吗？ https://www.kanju688.com/book/pb0bjk/
+- 假装Daddy儿子翻车后 https://www.kanju688.com/book/pb0bjj/
+- 穿进女儿国，误娶笨蛋美人 https://www.kanju688.com/book/pb0bji/
+- 无法攻略的他[娱乐圈] https://www.kanju688.com/book/pb0bje/
+- 吉食已到 https://www.kanju688.com/book/pb0bjc/
+- 直播手术，外科天才打脸日常[重生] https://www.kanju688.com/book/pb0bjb/
+- 真千金她一心向道 https://www.kanju688.com/book/pb0bj9/
+- 谁要给暴君当狗啊？！ https://www.kanju688.com/book/pb0bj6/
+- 被坏狗盯上了 https://www.kanju688.com/book/pb0biq/
+- 失忆后误把顶流对家当男朋友 https://www.kanju688.com/book/pb0bim/
+- 黎明协奏曲 https://www.kanju688.com/book/pb0bii/
+- [诡秘之主]历史同人的神秘学用法 https://www.kanju688.com/book/pb0bih/
+- 华夏卡牌，但亡国之君 https://www.kanju688.com/book/pb0bie/
+- 笨蛋美人主动和亲后 https://www.kanju688.com/book/pb0bib/
+- 妖狐崽崽，但全家普通人 https://www.kanju688.com/book/pb0bia/
+- [综英美]这地图不对劲 https://www.kanju688.com/book/pb0bi7/
+- 神棍六十年代再就业 https://www.kanju688.com/book/pb0bi6/
+- 漂亮知青说他是我未来老婆 https://www.kanju688.com/book/pb0bi5/
+- 重生不入东宫 https://www.kanju688.com/book/pb0bi0/
+- 黑化超英抽卡中[综英美] https://www.kanju688.com/book/pb0bhq/
+- 在将军府任职男仆侍后 https://www.kanju688.com/book/pb0bho/
+- 谁家女主是野牦牛啊！ https://www.kanju688.com/book/pb0bhn/
+- 王妃求子记 https://www.kanju688.com/book/pb0bhm/
+- 日向怎么通关忍界 https://www.kanju688.com/book/pb0bhl/
+- 谁是真正的猎物？ https://www.kanju688.com/book/pb0bhh/
+- [足球]被儿子队友求婚以后 https://www.kanju688.com/book/pb0bhe/
+- 浪漫至死也致死 https://www.kanju688.com/book/pb0bhd/
+- [全职高手]我家攻坚撒手没 https://www.kanju688.com/book/pb0bhb/
+- 哥，咱俩天下第一好 https://www.kanju688.com/book/pb0bh9/
+- 少女暴君在乙游 https://www.kanju688.com/book/pb0bh7/
+- 金光裘 https://www.kanju688.com/book/pb0bh6/
+- 路人攻今天救风尘了吗［快穿］ https://www.kanju688.com/book/pb0bh3/
+- 养媳欲离 https://www.kanju688.com/book/pb0bgs/
+- 我心有憾不可平[历史直播] https://www.kanju688.com/book/pb0bgq/
+- 有限制体质的仙尊徒弟 https://www.kanju688.com/book/pb0bgn/
+- [全职高手]走错片场要怎么办 https://www.kanju688.com/book/pb0bgm/
+- 哥哥不是我的吗？[九零] https://www.kanju688.com/book/pb0bgk/
+- 港城暴发户的败家妻[年代] https://www.kanju688.com/book/pb0bgi/
+- 男二就是要给龙傲天当老婆的 https://www.kanju688.com/book/pb0bgh/
+- 破了剑道魁首的无情道后 https://www.kanju688.com/book/pb0bgg/
+- 和乙骨前辈网恋后 https://www.kanju688.com/book/pb0bg5/
+- 拒婚后，和联姻对象闪婚了 https://www.kanju688.com/book/pb0bg3/
+- 在运动番当顶级Bking https://www.kanju688.com/book/pb0bg2/
+- 穿书九零，老实嫂子要嫁人 https://www.kanju688.com/book/pb0bfr/
+- 洞房夜，我和夫君一起翻车 https://www.kanju688.com/book/pb0bfo/
+- 论人间失格与血鬼术的适配性 https://www.kanju688.com/book/pb0bfm/
+- 老板被我渣了两次？ https://www.kanju688.com/book/pb0bfl/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.kanju688.com/book/pb0bfj/
+- 陪嫁后被迫成了通房 https://www.kanju688.com/book/pb0bfi/
+- [综]恋与蜘蛛侠 https://www.kanju688.com/book/pb0bfe/
+- ［西游］我的饭馆通大唐 https://www.kanju688.com/book/pb0bfa/
+- 他怎么还不提分手？ https://www.kanju688.com/book/pb0bf9/
+- 她柔弱不能自理 https://www.kanju688.com/book/pb0bf8/
+- 致镜汀 https://www.kanju688.com/book/pb0bf6/
+- 龙傲天求我挖他仙骨 https://www.kanju688.com/book/pb0bf5/
+- 人鱼种草养毛茸茸 https://www.kanju688.com/book/pb0bf0/
+- 心上春 https://www.kanju688.com/book/pb0bet/
+- 戏意 https://www.kanju688.com/book/pb0bes/
+- 鼬系如何在鸥台生存 https://www.kanju688.com/book/pb0ber/
+- 禁止勾搭黑化万人迷 https://www.kanju688.com/book/pb0beq/
+- 橘子小狗只想打排球 https://www.kanju688.com/book/pb0beo/
+- 宿傩妹妹今天也在艰难求生 https://www.kanju688.com/book/pb0bd9/
+- [娱乐圈]学医救不了性冷淡！ https://www.kanju688.com/book/pb0bcm/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.kanju688.com/book/pb0bcb/
+- 这个替嫁让我来！ https://www.kanju688.com/book/pb0bc4/
+- 从1951开始 https://www.kanju688.com/book/pb0bbs/
+- 清穿女回来后[天幕] https://www.kanju688.com/book/pb0b91/
+- 康熙宠妃日常 https://www.kanju688.com/book/pb0b7k/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.kanju688.com/book/pavuob/
+- 今天还不可以造反吗？？？ https://www.kanju688.com/book/pavpag/
+- 喂，别睡了！ https://www.kanju688.com/book/pavju8/
+- 九零重组小家庭 https://www.kanju688.com/book/pavjpi/
+- 我老婆怎么是反派暴君 https://www.kanju688.com/book/pavj58/
+- [足球]足坛人生模拟器 https://www.kanju688.com/book/pavimi/
+- 十二星座请选择你的安全屋 https://www.kanju688.com/book/pavdae/
+- 从维多利亚时代开始 https://www.kanju688.com/book/pav5ej/
+- 昭暮 https://www.kanju688.com/book/pav3bk/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.kanju688.com/book/pauvek/
+- 星际团宠小人鱼 [赛诗会作品] https://www.kanju688.com/book/pauvdd/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.kanju688.com/book/pauoa8/
+- 食明 https://www.kanju688.com/book/paumbm/
+- 诡话第一boss [赛诗会作品] https://www.kanju688.com/book/pauj1g/
+- 镇守神州，从万里长城开始 https://www.kanju688.com/book/paued1/
+- 禁止限制文主角转职龙傲天 https://www.kanju688.com/book/paucnp/
+- [斗罗]你已有取死之道 https://www.kanju688.com/book/paub42/
+- 社畜Beta也能被顶A觊觎吗 https://www.kanju688.com/book/pau6tf/
+- 我真不想当魔头的师妹 https://www.kanju688.com/book/pau1oa/
+- 青宁升仙录 https://www.kanju688.com/book/patvf3/
+- 在这个圈子，叫“跟” https://www.kanju688.com/book/patu8n/
+- 被鬼怪宠爱的漂亮书生 https://www.kanju688.com/book/patnqs/
+- 在诡异世界扮演神明[快穿] https://www.kanju688.com/book/patmc0/
+- 社恐直播鉴宝，但带球跑 https://www.kanju688.com/book/patl8b/
+- 韩团绿卡不想忍了 https://www.kanju688.com/book/patjqn/
+- 获得七个彩虹共感娃娃 https://www.kanju688.com/book/patdsq/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.kanju688.com/book/patbtc/
+- 被迫臣服冰山顶级大小姐O https://www.kanju688.com/book/patam5/
+- 木叶RPG，恋爱系物语 https://www.kanju688.com/book/patabe/
+- 死遁后成了忍界白月光？ https://www.kanju688.com/book/pat74v/
+- 耀眼的他 https://www.kanju688.com/book/pat6hr/
+- 哥你不能不要我 https://www.kanju688.com/book/pat5ui/
+- 过气男团ACE重生后 https://www.kanju688.com/book/pat5gm/
+- 言不由衷 https://www.kanju688.com/book/pat5a9/
+- 被小蜘蛛听见心声后 https://www.kanju688.com/book/pat3j4/
+- 这谁的沙雕二次元心声！ https://www.kanju688.com/book/pat2jo/
+- 满级大佬成为养成系[娱乐圈] https://www.kanju688.com/book/pat2it/
+- 重力系杀手误入忍界记实录 https://www.kanju688.com/book/pat1mh/
+- 卷王后妈，八零养娃 https://www.kanju688.com/book/pat0vn/
+- 始乱终弃清冷公子后 https://www.kanju688.com/book/pat0k3/
+- 将妹妹嫁给别人后 https://www.kanju688.com/book/pastuj/
+- 偷香窃玉 https://www.kanju688.com/book/passna/
+- 穿书留子，在线苟命 https://www.kanju688.com/book/pasrpd/
+- 一枝枝怨 https://www.kanju688.com/book/pasqlv/
+- 女巫异世界打工指南[西幻] https://www.kanju688.com/book/pasjqu/
+- 幸村女友，但赛博除妖师 https://www.kanju688.com/book/pasi43/
+- 标记母亲的前妻O后 https://www.kanju688.com/book/pashhb/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.kanju688.com/book/pase6o/
+- 人气反派的马甲演绎实录 https://www.kanju688.com/book/pascun/
+- 荒山安居日常 https://www.kanju688.com/book/paschf/
+- 全民求生里不是这样的！ https://www.kanju688.com/book/pasc2b/
+- 道长，收收神通吧 https://www.kanju688.com/book/pas81m/
+- 异界求生从马甲开始 https://www.kanju688.com/book/pas7fa/
+- 欢迎光临，万世极乐 https://www.kanju688.com/book/pas0lh/
+- 我家民宿，古人抢着上班 https://www.kanju688.com/book/parrgu/
+- 春山慢 https://www.kanju688.com/book/parqrf/
+- 非人马甲与日俱增[升维] https://www.kanju688.com/book/parpnt/
+- 漂亮病弱直男缠药封建大爹 https://www.kanju688.com/book/parpbj/
+- 渴肤症总裁的秘密情人 https://www.kanju688.com/book/parog6/
+- 全民求生：我在森林里当初级魔法师 https://www.kanju688.com/book/paro65/
+- 老子顶A，凭什么当皇妃！ https://www.kanju688.com/book/parnsn/
+- 悬刃之下 https://www.kanju688.com/book/parm1r/
+- 星海世界生存指南[无限] https://www.kanju688.com/book/parlik/
+- 她是反派的背景板母亲 https://www.kanju688.com/book/paqpqh/
+- [娱乐圈]过分美丽的她 https://www.kanju688.com/book/paqppb/
+- 五十年代港城日常 https://www.kanju688.com/book/paqpot/
+- 巨物致富：回乡开钓场 https://www.kanju688.com/book/paqplf/
+- 全民求生:从小木屋到魔法农场 https://www.kanju688.com/book/paqpj9/
+- 我有一座安全城 [赛诗会作品] https://www.kanju688.com/book/paqpgg/
+- 日化人生[科研] https://www.kanju688.com/book/paqpe1/
+- 反派白月光不按剧情死[快穿] https://www.kanju688.com/book/paqp48/
+- 海岛求生：生活玩家种田囤货 https://www.kanju688.com/book/paqomg/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.kanju688.com/book/paqo6m/
+- 魔物堆里的人类幼崽 https://www.kanju688.com/book/paqnrk/
+- 清澈女大的六零年代 https://www.kanju688.com/book/paqnqo/
+- 我是唯一地上神国 [赛诗会作品] https://www.kanju688.com/book/paqngp/
+- 天幕今天也在直播我搞基建 https://www.kanju688.com/book/paqn7b/
+- 大瑛弟国 https://www.kanju688.com/book/paqn49/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1374/index.md)
+- [最新热点小说](/site1374/newhot.md)
+- [人气小说](/site1374/b111.md)
+- [推荐小说](/site1374/recommend1.md)
+- [推荐小说列表](/site1374/recommend/index.md)
+- [热点小说](/site1374/hot/index.md)
+- [全本小说](/site1374/quanben/index.md)
+- [网站地图](/site1374/sitemap/index.md)
+- [标签](/site1374/tag/index.md)
+- [爱情小说](/site1374/category101/index.md)
+- [武侠小说](/site1374/category102/index.md)
+- [奇幻小说](/site1374/category103/index.md)
+- [仙侠小说](/site1374/category104/index.md)
+- [游戏小说](/site1374/category105/index.md)
+- [传奇小说](/site1374/category106/index.md)
+- [科幻小说](/site1374/category107/index.md)
+- [惊悚小说](/site1374/category109/index.md)
+- [悬疑小说](/site1374/category110/index.md)

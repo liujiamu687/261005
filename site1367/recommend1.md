@@ -1,0 +1,182 @@
+
+# 奇幻笔趣屋 - 书友最值得收藏的网络小说阅读网
+
+更新时间：2026-10-05 03:05:01
+
+奇幻笔趣屋收录整理最新最全的热门网络小说，提供所有小说首发最新章节免费阅读服务，是书友们最值得收藏的小说阅读网站。 https://www.qihuan958.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.qihuan958.com/book/4rau17v/
+- 致镜汀 https://www.qihuan958.com/book/4rau17u/
+- 人鱼种草养毛茸茸 https://www.qihuan958.com/book/4rau17o/
+- 路人攻今天救风尘了吗［快穿］ https://www.qihuan958.com/book/4rau17n/
+- 在运动番当顶级Bking https://www.qihuan958.com/book/4rau17m/
+- 今天被邪祟撅了吗？ https://www.qihuan958.com/book/4rau17l/
+- 穿进女儿国，误娶笨蛋美人 https://www.qihuan958.com/book/4rau17k/
+- 神棍六十年代再就业 https://www.qihuan958.com/book/4rau17j/
+- [综英美]这地图不对劲 https://www.qihuan958.com/book/4rau17f/
+- 有限制体质的仙尊徒弟 https://www.qihuan958.com/book/4rau17a/
+- 我心有憾不可平[历史直播] https://www.qihuan958.com/book/4rau179/
+- 橘子小狗只想打排球 https://www.qihuan958.com/book/4rau177/
+- 重生不入东宫 https://www.qihuan958.com/book/4rau176/
+- 吉食已到 https://www.qihuan958.com/book/4rau175/
+- 穿书九零，老实嫂子要嫁人 https://www.qihuan958.com/book/4rau173/
+- ［西游］我的饭馆通大唐 https://www.qihuan958.com/book/4rau171/
+- [综]恋与蜘蛛侠 https://www.qihuan958.com/book/4rau170/
+- 女装网骗到校草怎么办 https://www.qihuan958.com/book/4rau16u/
+- [诡秘之主]历史同人的神秘学用法 https://www.qihuan958.com/book/4rau16s/
+- 陪嫁后被迫成了通房 https://www.qihuan958.com/book/4rau16q/
+- 少女暴君在乙游 https://www.qihuan958.com/book/4rau16o/
+- 港城暴发户的败家妻[年代] https://www.qihuan958.com/book/4rau16l/
+- 全天下都在求太子殿下别死！ https://www.qihuan958.com/book/4rau16k/
+- 王妃求子记 https://www.qihuan958.com/book/4rau169/
+- 禁止勾搭黑化万人迷 https://www.qihuan958.com/book/4rau166/
+- 真千金她一心向道 https://www.qihuan958.com/book/4rau161/
+- 和乙骨前辈网恋后 https://www.qihuan958.com/book/4rau15p/
+- 戏意 https://www.qihuan958.com/book/4rau15m/
+- 养媳欲离 https://www.qihuan958.com/book/4rau15j/
+- [全职高手]走错片场要怎么办 https://www.qihuan958.com/book/4rau15i/
+- 论人间失格与血鬼术的适配性 https://www.qihuan958.com/book/4rau15g/
+- 日向怎么通关忍界 https://www.qihuan958.com/book/4rau15f/
+- 破了剑道魁首的无情道后 https://www.qihuan958.com/book/4rau15c/
+- 无法攻略的他[娱乐圈] https://www.qihuan958.com/book/4rau156/
+- 穿成丫鬟，但绑定游戏面板 https://www.qihuan958.com/book/4rau154/
+- 谁家女主是野牦牛啊！ https://www.qihuan958.com/book/4rau153/
+- 她柔弱不能自理 https://www.qihuan958.com/book/4rau150/
+- 谁要给暴君当狗啊？！ https://www.qihuan958.com/book/4rau14v/
+- [全职高手]我家攻坚撒手没 https://www.qihuan958.com/book/4rau14u/
+- 在将军府任职男仆侍后 https://www.qihuan958.com/book/4rau14t/
+- 假装Daddy儿子翻车后 https://www.qihuan958.com/book/4rau14r/
+- 心上春 https://www.qihuan958.com/book/4rau14q/
+- 哥，咱俩天下第一好 https://www.qihuan958.com/book/4rau14o/
+- [足球]被儿子队友求婚以后 https://www.qihuan958.com/book/4rau14l/
+- 老板被我渣了两次？ https://www.qihuan958.com/book/4rau14k/
+- 妖狐崽崽，但全家普通人 https://www.qihuan958.com/book/4rau14j/
+- 那什么的小蜘蛛 https://www.qihuan958.com/book/4rau14i/
+- 直播手术，外科天才打脸日常[重生] https://www.qihuan958.com/book/4rau14g/
+- 黑化超英抽卡中[综英美] https://www.qihuan958.com/book/4rau14f/
+- 漂亮知青说他是我未来老婆 https://www.qihuan958.com/book/4rau149/
+- 超英都在阻止我黑化[综英美] https://www.qihuan958.com/book/4rau148/
+- 黎明协奏曲 https://www.qihuan958.com/book/4rau147/
+- 华夏卡牌，但亡国之君 https://www.qihuan958.com/book/4rau143/
+- 失忆后误把顶流对家当男朋友 https://www.qihuan958.com/book/4rau141/
+- 金光裘 https://www.qihuan958.com/book/4rau140/
+- 拒婚后，和联姻对象闪婚了 https://www.qihuan958.com/book/4rau13v/
+- 龙傲天求我挖他仙骨 https://www.qihuan958.com/book/4rau13p/
+- 男二就是要给龙傲天当老婆的 https://www.qihuan958.com/book/4rau13o/
+- 被坏狗盯上了 https://www.qihuan958.com/book/4rau13m/
+- 鼬系如何在鸥台生存 https://www.qihuan958.com/book/4rau13l/
+- 一剑捅穿道侣后他变天道了 https://www.qihuan958.com/book/4rau13k/
+- 洞房夜，我和夫君一起翻车 https://www.qihuan958.com/book/4rau13e/
+- 他怎么还不提分手？ https://www.qihuan958.com/book/4rau139/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.qihuan958.com/book/4rau138/
+- 浪漫至死也致死 https://www.qihuan958.com/book/4rau132/
+- 哥哥不是我的吗？[九零] https://www.qihuan958.com/book/4rau131/
+- 谁是真正的猎物？ https://www.qihuan958.com/book/4rau12s/
+- 胎穿到恶毒反派肚中 https://www.qihuan958.com/book/4rau12r/
+- 笨蛋美人主动和亲后 https://www.qihuan958.com/book/4rau12l/
+- [娱乐圈]学医救不了性冷淡！ https://www.qihuan958.com/book/4rau121/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.qihuan958.com/book/4rau10t/
+- 宿傩妹妹今天也在艰难求生 https://www.qihuan958.com/book/4rau10h/
+- 康熙宠妃日常 https://www.qihuan958.com/book/4rau0vc/
+- 这个替嫁让我来！ https://www.qihuan958.com/book/4rau0uj/
+- 清穿女回来后[天幕] https://www.qihuan958.com/book/4rau0ud/
+- 从1951开始 https://www.qihuan958.com/book/4rau0re/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.qihuan958.com/book/4ratkca/
+- 今天还不可以造反吗？？？ https://www.qihuan958.com/book/4ratetb/
+- 喂，别睡了！ https://www.qihuan958.com/book/4rat9g4/
+- 九零重组小家庭 https://www.qihuan958.com/book/4rat9a3/
+- 我老婆怎么是反派暴君 https://www.qihuan958.com/book/4rat8m7/
+- [足球]足坛人生模拟器 https://www.qihuan958.com/book/4rat8a7/
+- 十二星座请选择你的安全屋 https://www.qihuan958.com/book/4rat31u/
+- 从维多利亚时代开始 https://www.qihuan958.com/book/4rasr1r/
+- 昭暮 https://www.qihuan958.com/book/4rasovg/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.qihuan958.com/book/4rasl0v/
+- 星际团宠小人鱼 [赛诗会作品] https://www.qihuan958.com/book/4rasl0k/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.qihuan958.com/book/4rasdul/
+- 食明 https://www.qihuan958.com/book/4rasbsn/
+- 诡话第一boss [赛诗会作品] https://www.qihuan958.com/book/4ras8kj/
+- 镇守神州，从万里长城开始 https://www.qihuan958.com/book/4ras4l7/
+- 禁止限制文主角转职龙傲天 https://www.qihuan958.com/book/4ras25u/
+- [斗罗]你已有取死之道 https://www.qihuan958.com/book/4rarvvd/
+- 社畜Beta也能被顶A觊觎吗 https://www.qihuan958.com/book/4rarth0/
+- 我真不想当魔头的师妹 https://www.qihuan958.com/book/4rarnjk/
+- 在这个圈子，叫“跟” https://www.qihuan958.com/book/4rarkcd/
+- 青宁升仙录 https://www.qihuan958.com/book/4rark2u/
+- 社恐直播鉴宝，但带球跑 https://www.qihuan958.com/book/4rarbtj/
+- 被鬼怪宠爱的漂亮书生 https://www.qihuan958.com/book/4rarbs6/
+- 在诡异世界扮演神明[快穿] https://www.qihuan958.com/book/4rarbg8/
+- 韩团绿卡不想忍了 https://www.qihuan958.com/book/4rar85o/
+- 获得七个彩虹共感娃娃 https://www.qihuan958.com/book/4rar430/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.qihuan958.com/book/4rar1t9/
+- 被迫臣服冰山顶级大小姐O https://www.qihuan958.com/book/4rar094/
+- 木叶RPG，恋爱系物语 https://www.qihuan958.com/book/4rar04r/
+- 耀眼的他 https://www.qihuan958.com/book/4raquit/
+- 死遁后成了忍界白月光？ https://www.qihuan958.com/book/4raqt25/
+- 言不由衷 https://www.qihuan958.com/book/4raqqoh/
+- 哥你不能不要我 https://www.qihuan958.com/book/4raqqam/
+- 被小蜘蛛听见心声后 https://www.qihuan958.com/book/4raqq0c/
+- 过气男团ACE重生后 https://www.qihuan958.com/book/4raqpd7/
+- 始乱终弃清冷公子后 https://www.qihuan958.com/book/4raqp1j/
+- 重力系杀手误入忍界记实录 https://www.qihuan958.com/book/4raqorh/
+- 卷王后妈，八零养娃 https://www.qihuan958.com/book/4raqojb/
+- 满级大佬成为养成系[娱乐圈] https://www.qihuan958.com/book/4raqo4k/
+- 这谁的沙雕二次元心声！ https://www.qihuan958.com/book/4raqmcv/
+- 将妹妹嫁给别人后 https://www.qihuan958.com/book/4raqkn7/
+- 穿书留子，在线苟命 https://www.qihuan958.com/book/4raqhra/
+- 偷香窃玉 https://www.qihuan958.com/book/4raqhoc/
+- 一枝枝怨 https://www.qihuan958.com/book/4raqft9/
+- 幸村女友，但赛博除妖师 https://www.qihuan958.com/book/4raq97p/
+- 女巫异世界打工指南[西幻] https://www.qihuan958.com/book/4raq83b/
+- 标记母亲的前妻O后 https://www.qihuan958.com/book/4raq4rc/
+- 人气反派的马甲演绎实录 https://www.qihuan958.com/book/4raq3bh/
+- 荒山安居日常 https://www.qihuan958.com/book/4raq334/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.qihuan958.com/book/4raq2ko/
+- 全民求生里不是这样的！ https://www.qihuan958.com/book/4rapvfj/
+- 道长，收收神通吧 https://www.qihuan958.com/book/4rapts8/
+- 异界求生从马甲开始 https://www.qihuan958.com/book/4raptfm/
+- 欢迎光临，万世极乐 https://www.qihuan958.com/book/4rapo13/
+- 我家民宿，古人抢着上班 https://www.qihuan958.com/book/4raphcc/
+- 春山慢 https://www.qihuan958.com/book/4raph3g/
+- 漂亮病弱直男缠药封建大爹 https://www.qihuan958.com/book/4rapf7p/
+- 渴肤症总裁的秘密情人 https://www.qihuan958.com/book/4rapegj/
+- 非人马甲与日俱增[升维] https://www.qihuan958.com/book/4rape6m/
+- 全民求生：我在森林里当初级魔法师 https://www.qihuan958.com/book/4rape47/
+- 老子顶A，凭什么当皇妃！ https://www.qihuan958.com/book/4rapds4/
+- 悬刃之下 https://www.qihuan958.com/book/4rapcna/
+- 星海世界生存指南[无限] https://www.qihuan958.com/book/4rapacv/
+- 日化人生[科研] https://www.qihuan958.com/book/4raofs2/
+- 五十年代港城日常 https://www.qihuan958.com/book/4raof2o/
+- [娱乐圈]过分美丽的她 https://www.qihuan958.com/book/4raoesk/
+- 全民求生:从小木屋到魔法农场 https://www.qihuan958.com/book/4raoes5/
+- 我有一座安全城 [赛诗会作品] https://www.qihuan958.com/book/4raoe7t/
+- 反派白月光不按剧情死[快穿] https://www.qihuan958.com/book/4raoe5c/
+- 我是唯一地上神国 [赛诗会作品] https://www.qihuan958.com/book/4raoe0q/
+- 天幕今天也在直播我搞基建 https://www.qihuan958.com/book/4raoduj/
+- 大瑛弟国 https://www.qihuan958.com/book/4raodu3/
+- 清澈女大的六零年代 https://www.qihuan958.com/book/4raodil/
+- 魔物堆里的人类幼崽 https://www.qihuan958.com/book/4raod8n/
+- 巨物致富：回乡开钓场 https://www.qihuan958.com/book/4raod6f/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.qihuan958.com/book/4raod0o/
+- 海岛求生：生活玩家种田囤货 https://www.qihuan958.com/book/4raocvd/
+- 她是反派的背景板母亲 https://www.qihuan958.com/book/4raocqk/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1367/index.md)
+- [最新热点小说](/site1367/newhot.md)
+- [人气小说](/site1367/b111.md)
+- [推荐小说](/site1367/recommend1.md)
+- [推荐小说列表](/site1367/recommend/index.md)
+- [热点小说](/site1367/hot/index.md)
+- [全本小说](/site1367/quanben/index.md)
+- [网站地图](/site1367/sitemap/index.md)
+- [标签](/site1367/tag/index.md)
+- [爱情小说](/site1367/category101/index.md)
+- [武侠小说](/site1367/category102/index.md)
+- [奇幻小说](/site1367/category103/index.md)
+- [仙侠小说](/site1367/category104/index.md)
+- [游戏小说](/site1367/category105/index.md)
+- [传奇小说](/site1367/category106/index.md)
+- [科幻小说](/site1367/category107/index.md)
+- [惊悚小说](/site1367/category109/index.md)
+- [悬疑小说](/site1367/category110/index.md)

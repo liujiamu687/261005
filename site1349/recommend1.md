@@ -1,0 +1,182 @@
+
+# 文学小说668 - 全球最新最热的小说阅读平台
+
+更新时间：2026-10-05 03:06:09
+
+文学小说668是全球最新、最热的小说阅读网站之一，汇集了包括言情小说、玄幻小说、穿越小说在内的各类优质小说资源，让读者能够尽情享受阅读的乐趣。 https://www.wenxue668.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.wenxue668.com/book/44ff1pn/
+- 有限制体质的仙尊徒弟 https://www.wenxue668.com/book/44ff1pl/
+- 陪嫁后被迫成了通房 https://www.wenxue668.com/book/44ff1pk/
+- 谁家女主是野牦牛啊！ https://www.wenxue668.com/book/44ff1pj/
+- [全职高手]我家攻坚撒手没 https://www.wenxue668.com/book/44ff1pi/
+- 全天下都在求太子殿下别死！ https://www.wenxue668.com/book/44ff1pg/
+- 直播手术，外科天才打脸日常[重生] https://www.wenxue668.com/book/44ff1pd/
+- 在将军府任职男仆侍后 https://www.wenxue668.com/book/44ff1p9/
+- 金光裘 https://www.wenxue668.com/book/44ff1p8/
+- [足球]被儿子队友求婚以后 https://www.wenxue668.com/book/44ff1p3/
+- 谁要给暴君当狗啊？！ https://www.wenxue668.com/book/44ff1p2/
+- 那什么的小蜘蛛 https://www.wenxue668.com/book/44ff1ot/
+- 失忆后误把顶流对家当男朋友 https://www.wenxue668.com/book/44ff1oq/
+- 橘子小狗只想打排球 https://www.wenxue668.com/book/44ff1op/
+- 养媳欲离 https://www.wenxue668.com/book/44ff1ol/
+- 黎明协奏曲 https://www.wenxue668.com/book/44ff1ok/
+- 吉食已到 https://www.wenxue668.com/book/44ff1og/
+- 禁止勾搭黑化万人迷 https://www.wenxue668.com/book/44ff1od/
+- 今天被邪祟撅了吗？ https://www.wenxue668.com/book/44ff1ob/
+- 龙傲天求我挖他仙骨 https://www.wenxue668.com/book/44ff1o6/
+- 漂亮知青说他是我未来老婆 https://www.wenxue668.com/book/44ff1o3/
+- 路人攻今天救风尘了吗［快穿］ https://www.wenxue668.com/book/44ff1o2/
+- 超英都在阻止我黑化[综英美] https://www.wenxue668.com/book/44ff1o1/
+- 港城暴发户的败家妻[年代] https://www.wenxue668.com/book/44ff1nu/
+- [综]恋与蜘蛛侠 https://www.wenxue668.com/book/44ff1ns/
+- 他怎么还不提分手？ https://www.wenxue668.com/book/44ff1nr/
+- 哥哥不是我的吗？[九零] https://www.wenxue668.com/book/44ff1nn/
+- 谁是真正的猎物？ https://www.wenxue668.com/book/44ff1nm/
+- 戏意 https://www.wenxue668.com/book/44ff1nk/
+- 华夏卡牌，但亡国之君 https://www.wenxue668.com/book/44ff1nj/
+- 女装网骗到校草怎么办 https://www.wenxue668.com/book/44ff1ni/
+- 笨蛋美人主动和亲后 https://www.wenxue668.com/book/44ff1ng/
+- 破了剑道魁首的无情道后 https://www.wenxue668.com/book/44ff1nd/
+- 神棍六十年代再就业 https://www.wenxue668.com/book/44ff1na/
+- [诡秘之主]历史同人的神秘学用法 https://www.wenxue668.com/book/44ff1n7/
+- 黑化超英抽卡中[综英美] https://www.wenxue668.com/book/44ff1n5/
+- 在运动番当顶级Bking https://www.wenxue668.com/book/44ff1n2/
+- 真千金她一心向道 https://www.wenxue668.com/book/44ff1n0/
+- 假装Daddy儿子翻车后 https://www.wenxue668.com/book/44ff1mu/
+- 日向怎么通关忍界 https://www.wenxue668.com/book/44ff1mq/
+- 穿书九零，老实嫂子要嫁人 https://www.wenxue668.com/book/44ff1ml/
+- 妖狐崽崽，但全家普通人 https://www.wenxue668.com/book/44ff1mj/
+- ［西游］我的饭馆通大唐 https://www.wenxue668.com/book/44ff1mi/
+- 少女暴君在乙游 https://www.wenxue668.com/book/44ff1mf/
+- 被坏狗盯上了 https://www.wenxue668.com/book/44ff1mb/
+- 人鱼种草养毛茸茸 https://www.wenxue668.com/book/44ff1m7/
+- 她柔弱不能自理 https://www.wenxue668.com/book/44ff1m4/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.wenxue668.com/book/44ff1m1/
+- 洞房夜，我和夫君一起翻车 https://www.wenxue668.com/book/44ff1lv/
+- 拒婚后，和联姻对象闪婚了 https://www.wenxue668.com/book/44ff1lt/
+- [综英美]这地图不对劲 https://www.wenxue668.com/book/44ff1ls/
+- 胎穿到恶毒反派肚中 https://www.wenxue668.com/book/44ff1ll/
+- 无法攻略的他[娱乐圈] https://www.wenxue668.com/book/44ff1lj/
+- 重生不入东宫 https://www.wenxue668.com/book/44ff1li/
+- 哥，咱俩天下第一好 https://www.wenxue668.com/book/44ff1lh/
+- 老板被我渣了两次？ https://www.wenxue668.com/book/44ff1lf/
+- 我心有憾不可平[历史直播] https://www.wenxue668.com/book/44ff1ld/
+- 论人间失格与血鬼术的适配性 https://www.wenxue668.com/book/44ff1lc/
+- 男二就是要给龙傲天当老婆的 https://www.wenxue668.com/book/44ff1l8/
+- 穿进女儿国，误娶笨蛋美人 https://www.wenxue668.com/book/44ff1l6/
+- 心上春 https://www.wenxue668.com/book/44ff1l5/
+- 致镜汀 https://www.wenxue668.com/book/44ff1kt/
+- 浪漫至死也致死 https://www.wenxue668.com/book/44ff1ks/
+- 鼬系如何在鸥台生存 https://www.wenxue668.com/book/44ff1kq/
+- 王妃求子记 https://www.wenxue668.com/book/44ff1kj/
+- 一剑捅穿道侣后他变天道了 https://www.wenxue668.com/book/44ff1kf/
+- [全职高手]走错片场要怎么办 https://www.wenxue668.com/book/44ff1kc/
+- 穿成丫鬟，但绑定游戏面板 https://www.wenxue668.com/book/44ff1ka/
+- 和乙骨前辈网恋后 https://www.wenxue668.com/book/44ff1k9/
+- [娱乐圈]学医救不了性冷淡！ https://www.wenxue668.com/book/44ff1j7/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.wenxue668.com/book/44ff1j5/
+- 宿傩妹妹今天也在艰难求生 https://www.wenxue668.com/book/44ff1ip/
+- 清穿女回来后[天幕] https://www.wenxue668.com/book/44ff1h4/
+- 这个替嫁让我来！ https://www.wenxue668.com/book/44ff1g3/
+- 从1951开始 https://www.wenxue668.com/book/44ff1fr/
+- 康熙宠妃日常 https://www.wenxue668.com/book/44ff1cl/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.wenxue668.com/book/44fel73/
+- 今天还不可以造反吗？？？ https://www.wenxue668.com/book/44fefpp/
+- 喂，别睡了！ https://www.wenxue668.com/book/44fea1f/
+- 九零重组小家庭 https://www.wenxue668.com/book/44fe9tb/
+- 我老婆怎么是反派暴君 https://www.wenxue668.com/book/44fe9id/
+- [足球]足坛人生模拟器 https://www.wenxue668.com/book/44fe8tn/
+- 十二星座请选择你的安全屋 https://www.wenxue668.com/book/44fe47b/
+- 从维多利亚时代开始 https://www.wenxue668.com/book/44fdrid/
+- 昭暮 https://www.wenxue668.com/book/44fdpo2/
+- 星际团宠小人鱼 [赛诗会作品] https://www.wenxue668.com/book/44fdmn7/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.wenxue668.com/book/44fdmmb/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.wenxue668.com/book/44fdfj3/
+- 食明 https://www.wenxue668.com/book/44fdcde/
+- 诡话第一boss [赛诗会作品] https://www.wenxue668.com/book/44fd9ab/
+- 镇守神州，从万里长城开始 https://www.wenxue668.com/book/44fd4l9/
+- 禁止限制文主角转职龙傲天 https://www.wenxue668.com/book/44fd46q/
+- [斗罗]你已有取死之道 https://www.wenxue668.com/book/44fd2io/
+- 社畜Beta也能被顶A觊觎吗 https://www.wenxue668.com/book/44fcukv/
+- 我真不想当魔头的师妹 https://www.wenxue668.com/book/44fcpqm/
+- 青宁升仙录 https://www.wenxue668.com/book/44fclvn/
+- 在这个圈子，叫“跟” https://www.wenxue668.com/book/44fcl1f/
+- 被鬼怪宠爱的漂亮书生 https://www.wenxue668.com/book/44fcce2/
+- 社恐直播鉴宝，但带球跑 https://www.wenxue668.com/book/44fcc1r/
+- 在诡异世界扮演神明[快穿] https://www.wenxue668.com/book/44fcbj7/
+- 获得七个彩虹共感娃娃 https://www.wenxue668.com/book/44fc4pb/
+- 韩团绿卡不想忍了 https://www.wenxue668.com/book/44fc393/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.wenxue668.com/book/44fc1dg/
+- 木叶RPG，恋爱系物语 https://www.wenxue668.com/book/44fc0sc/
+- 被迫臣服冰山顶级大小姐O https://www.wenxue668.com/book/44fbvtn/
+- 耀眼的他 https://www.wenxue668.com/book/44fbugb/
+- 死遁后成了忍界白月光？ https://www.wenxue668.com/book/44fbssk/
+- 被小蜘蛛听见心声后 https://www.wenxue668.com/book/44fbsea/
+- 言不由衷 https://www.wenxue668.com/book/44fbsb0/
+- 过气男团ACE重生后 https://www.wenxue668.com/book/44fbs0r/
+- 哥你不能不要我 https://www.wenxue668.com/book/44fbreq/
+- 卷王后妈，八零养娃 https://www.wenxue668.com/book/44fbp6r/
+- 满级大佬成为养成系[娱乐圈] https://www.wenxue668.com/book/44fbodp/
+- 重力系杀手误入忍界记实录 https://www.wenxue668.com/book/44fboa7/
+- 这谁的沙雕二次元心声！ https://www.wenxue668.com/book/44fbnuf/
+- 始乱终弃清冷公子后 https://www.wenxue668.com/book/44fbnsk/
+- 将妹妹嫁给别人后 https://www.wenxue668.com/book/44fbkfp/
+- 穿书留子，在线苟命 https://www.wenxue668.com/book/44fbj9r/
+- 偷香窃玉 https://www.wenxue668.com/book/44fbha2/
+- 一枝枝怨 https://www.wenxue668.com/book/44fbebc/
+- 幸村女友，但赛博除妖师 https://www.wenxue668.com/book/44fbasc/
+- 女巫异世界打工指南[西幻] https://www.wenxue668.com/book/44fb8fd/
+- 标记母亲的前妻O后 https://www.wenxue668.com/book/44fb7bh/
+- 荒山安居日常 https://www.wenxue668.com/book/44fb36j/
+- 人气反派的马甲演绎实录 https://www.wenxue668.com/book/44fb2vm/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.wenxue668.com/book/44favoe/
+- 全民求生里不是这样的！ https://www.wenxue668.com/book/44favg0/
+- 道长，收收神通吧 https://www.wenxue668.com/book/44fatce/
+- 异界求生从马甲开始 https://www.wenxue668.com/book/44fasf9/
+- 欢迎光临，万世极乐 https://www.wenxue668.com/book/44famnn/
+- 我家民宿，古人抢着上班 https://www.wenxue668.com/book/44faj51/
+- 春山慢 https://www.wenxue668.com/book/44faiob/
+- 渴肤症总裁的秘密情人 https://www.wenxue668.com/book/44fagld/
+- 全民求生：我在森林里当初级魔法师 https://www.wenxue668.com/book/44faeva/
+- 漂亮病弱直男缠药封建大爹 https://www.wenxue668.com/book/44fael3/
+- 非人马甲与日俱增[升维] https://www.wenxue668.com/book/44fae9l/
+- 老子顶A，凭什么当皇妃！ https://www.wenxue668.com/book/44fadom/
+- 悬刃之下 https://www.wenxue668.com/book/44facvv/
+- 星海世界生存指南[无限] https://www.wenxue668.com/book/44fabla/
+- 她是反派的背景板母亲 https://www.wenxue668.com/book/44f9g5q/
+- 反派白月光不按剧情死[快穿] https://www.wenxue668.com/book/44f9fpq/
+- 清澈女大的六零年代 https://www.wenxue668.com/book/44f9fi9/
+- 五十年代港城日常 https://www.wenxue668.com/book/44f9fbg/
+- 大瑛弟国 https://www.wenxue668.com/book/44f9f9s/
+- 海岛求生：生活玩家种田囤货 https://www.wenxue668.com/book/44f9f5l/
+- 魔物堆里的人类幼崽 https://www.wenxue668.com/book/44f9f2l/
+- 我有一座安全城 [赛诗会作品] https://www.wenxue668.com/book/44f9f17/
+- 巨物致富：回乡开钓场 https://www.wenxue668.com/book/44f9epc/
+- 我是唯一地上神国 [赛诗会作品] https://www.wenxue668.com/book/44f9eiu/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.wenxue668.com/book/44f9eir/
+- [娱乐圈]过分美丽的她 https://www.wenxue668.com/book/44f9ef1/
+- 全民求生:从小木屋到魔法农场 https://www.wenxue668.com/book/44f9ee3/
+- 日化人生[科研] https://www.wenxue668.com/book/44f9dtc/
+- 天幕今天也在直播我搞基建 https://www.wenxue668.com/book/44f9dgh/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1349/index.md)
+- [最新热点小说](/site1349/newhot.md)
+- [人气小说](/site1349/b111.md)
+- [推荐小说](/site1349/recommend1.md)
+- [推荐小说列表](/site1349/recommend/index.md)
+- [热点小说](/site1349/hot/index.md)
+- [全本小说](/site1349/quanben/index.md)
+- [网站地图](/site1349/sitemap/index.md)
+- [标签](/site1349/tag/index.md)
+- [爱情小说](/site1349/category101/index.md)
+- [武侠小说](/site1349/category102/index.md)
+- [奇幻小说](/site1349/category103/index.md)
+- [仙侠小说](/site1349/category104/index.md)
+- [游戏小说](/site1349/category105/index.md)
+- [传奇小说](/site1349/category106/index.md)
+- [科幻小说](/site1349/category107/index.md)
+- [惊悚小说](/site1349/category109/index.md)
+- [悬疑小说](/site1349/category110/index.md)

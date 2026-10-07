@@ -1,0 +1,182 @@
+
+# 书迷村-免费高质量网络小说阅读网,热门男生女生小说大全
+
+更新时间：2026-10-05 03:06:50
+
+书迷村是广大书友最值得收藏的网络小说阅读平台，提供最新最全的男生小说、女生小说以及孟静薇等作者的作品。在这里可以免费阅读到高质量的小说章节内容，是小说爱好者的首选网站。 https://www.ycqnjy.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.ycqnjy.com/book/95irf76/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.ycqnjy.com/book/95irf75/
+- 今天被邪祟撅了吗？ https://www.ycqnjy.com/book/95irf74/
+- 穿书九零，老实嫂子要嫁人 https://www.ycqnjy.com/book/95irf73/
+- 欢迎光临，万世极乐 https://www.ycqnjy.com/book/95irf72/
+- 浪漫至死也致死 https://www.ycqnjy.com/book/95irf71/
+- 妖狐崽崽，但全家普通人 https://www.ycqnjy.com/book/95irf70/
+- 神棍六十年代再就业 https://www.ycqnjy.com/book/95irf6v/
+- 失忆后误把顶流对家当男朋友 https://www.ycqnjy.com/book/95irf6t/
+- 一剑捅穿道侣后他变天道了 https://www.ycqnjy.com/book/95irf6s/
+- 胎穿到恶毒反派肚中 https://www.ycqnjy.com/book/95irf6r/
+- 直播手术，外科天才打脸日常[重生] https://www.ycqnjy.com/book/95irf6q/
+- 王妃求子记 https://www.ycqnjy.com/book/95irf6p/
+- 养媳欲离 https://www.ycqnjy.com/book/95irf6o/
+- [诡秘之主]历史同人的神秘学用法 https://www.ycqnjy.com/book/95irf6n/
+- 真千金她一心向道 https://www.ycqnjy.com/book/95irf6m/
+- 我心有憾不可平[历史直播] https://www.ycqnjy.com/book/95irf6l/
+- 日向怎么通关忍界 https://www.ycqnjy.com/book/95irf6k/
+- 陪嫁后被迫成了通房 https://www.ycqnjy.com/book/95irf6j/
+- 洞房夜，我和夫君一起翻车 https://www.ycqnjy.com/book/95irf6i/
+- 谁要给暴君当狗啊？！ https://www.ycqnjy.com/book/95irf6h/
+- 致镜汀 https://www.ycqnjy.com/book/95irf6g/
+- [综]恋与蜘蛛侠 https://www.ycqnjy.com/book/95irf6f/
+- 全民求生：我在森林里当初级魔法师 https://www.ycqnjy.com/book/95irf6e/
+- ［西游］我的饭馆通大唐 https://www.ycqnjy.com/book/95irf6d/
+- 和乙骨前辈网恋后 https://www.ycqnjy.com/book/95irf6c/
+- 论人间失格与血鬼术的适配性 https://www.ycqnjy.com/book/95irf6b/
+- 少女暴君在乙游 https://www.ycqnjy.com/book/95irf6a/
+- 女装网骗到校草怎么办 https://www.ycqnjy.com/book/95irf69/
+- 禁止勾搭黑化万人迷 https://www.ycqnjy.com/book/95irf68/
+- 假装Daddy儿子翻车后 https://www.ycqnjy.com/book/95irf66/
+- 港城暴发户的败家妻[年代] https://www.ycqnjy.com/book/95irf64/
+- [全职高手]走错片场要怎么办 https://www.ycqnjy.com/book/95irf63/
+- 老板被我渣了两次？ https://www.ycqnjy.com/book/95irf62/
+- 谁是真正的猎物？ https://www.ycqnjy.com/book/95irf61/
+- 拒婚后，和联姻对象闪婚了 https://www.ycqnjy.com/book/95irf5v/
+- 哥，咱俩天下第一好 https://www.ycqnjy.com/book/95irf5u/
+- 路人攻今天救风尘了吗［快穿］ https://www.ycqnjy.com/book/95irf5t/
+- 穿进女儿国，误娶笨蛋美人 https://www.ycqnjy.com/book/95irf5r/
+- 金光裘 https://www.ycqnjy.com/book/95irf5q/
+- 人鱼种草养毛茸茸 https://www.ycqnjy.com/book/95irf5p/
+- 笨蛋美人主动和亲后 https://www.ycqnjy.com/book/95irf5o/
+- 黎明协奏曲 https://www.ycqnjy.com/book/95irf5n/
+- 全天下都在求太子殿下别死！ https://www.ycqnjy.com/book/95irf5m/
+- 谁家女主是野牦牛啊！ https://www.ycqnjy.com/book/95irf5l/
+- 有限制体质的仙尊徒弟 https://www.ycqnjy.com/book/95irf5k/
+- 破了剑道魁首的无情道后 https://www.ycqnjy.com/book/95irf5i/
+- 龙傲天求我挖他仙骨 https://www.ycqnjy.com/book/95irf5h/
+- 穿成丫鬟，但绑定游戏面板 https://www.ycqnjy.com/book/95irf5g/
+- 漂亮知青说他是我未来老婆 https://www.ycqnjy.com/book/95irf5e/
+- 那什么的小蜘蛛 https://www.ycqnjy.com/book/95irf5d/
+- 哥哥不是我的吗？[九零] https://www.ycqnjy.com/book/95irf5c/
+- [足球]被儿子队友求婚以后 https://www.ycqnjy.com/book/95irf5b/
+- 他怎么还不提分手？ https://www.ycqnjy.com/book/95irf5a/
+- 渴肤症总裁的秘密情人 https://www.ycqnjy.com/book/95irf59/
+- 全民求生里不是这样的！ https://www.ycqnjy.com/book/95irf58/
+- 无法攻略的他[娱乐圈] https://www.ycqnjy.com/book/95irf57/
+- 重生不入东宫 https://www.ycqnjy.com/book/95irf56/
+- 华夏卡牌，但亡国之君 https://www.ycqnjy.com/book/95irf55/
+- [综英美]这地图不对劲 https://www.ycqnjy.com/book/95irf54/
+- 吉食已到 https://www.ycqnjy.com/book/95irf53/
+- 黑化超英抽卡中[综英美] https://www.ycqnjy.com/book/95irf52/
+- 橘子小狗只想打排球 https://www.ycqnjy.com/book/95irf51/
+- 被坏狗盯上了 https://www.ycqnjy.com/book/95irf50/
+- 男二就是要给龙傲天当老婆的 https://www.ycqnjy.com/book/95irf4v/
+- 鼬系如何在鸥台生存 https://www.ycqnjy.com/book/95irf4u/
+- 在将军府任职男仆侍后 https://www.ycqnjy.com/book/95irf4t/
+- 戏意 https://www.ycqnjy.com/book/95irf4s/
+- [全职高手]我家攻坚撒手没 https://www.ycqnjy.com/book/95irf4r/
+- 她柔弱不能自理 https://www.ycqnjy.com/book/95irf4q/
+- 心上春 https://www.ycqnjy.com/book/95irf4p/
+- 在运动番当顶级Bking https://www.ycqnjy.com/book/95irf4o/
+- 超英都在阻止我黑化[综英美] https://www.ycqnjy.com/book/95irf4n/
+- 言不由衷 https://www.ycqnjy.com/book/95irf3k/
+- [娱乐圈]学医救不了性冷淡！ https://www.ycqnjy.com/book/95irf38/
+- 宿傩妹妹今天也在艰难求生 https://www.ycqnjy.com/book/95irf11/
+- 被小蜘蛛听见心声后 https://www.ycqnjy.com/book/95irf09/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.ycqnjy.com/book/95irevq/
+- 被鬼怪宠爱的漂亮书生 https://www.ycqnjy.com/book/95irevm/
+- 这个替嫁让我来！ https://www.ycqnjy.com/book/95irev3/
+- 清穿女回来后[天幕] https://www.ycqnjy.com/book/95iretv/
+- 在这个圈子，叫“跟” https://www.ycqnjy.com/book/95iretk/
+- 从1951开始 https://www.ycqnjy.com/book/95iret4/
+- 康熙宠妃日常 https://www.ycqnjy.com/book/95iresl/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.ycqnjy.com/book/95ireog/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.ycqnjy.com/book/95irenn/
+- 十二星座请选择你的安全屋 https://www.ycqnjy.com/book/95iren2/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.ycqnjy.com/book/95irema/
+- 星际团宠小人鱼 [赛诗会作品] https://www.ycqnjy.com/book/95irel2/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.ycqnjy.com/book/95irekj/
+- 反派白月光不按剧情死[快穿] https://www.ycqnjy.com/book/95irehi/
+- 魔物堆里的人类幼崽 https://www.ycqnjy.com/book/95irefo/
+- 幸村女友，但赛博除妖师 https://www.ycqnjy.com/book/95ird7j/
+- 昭暮 https://www.ycqnjy.com/book/95ir3lk/
+- 九零重组小家庭 https://www.ycqnjy.com/book/95ipo1d/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.ycqnjy.com/book/95ipnqh/
+- [足球]足坛人生模拟器 https://www.ycqnjy.com/book/95ipn5p/
+- 从维多利亚时代开始 https://www.ycqnjy.com/book/95ip4e7/
+- 耀眼的他 https://www.ycqnjy.com/book/95iolv0/
+- 食明 https://www.ycqnjy.com/book/95iolib/
+- 诡话第一boss [赛诗会作品] https://www.ycqnjy.com/book/95ioi50/
+- 喂，别睡了！ https://www.ycqnjy.com/book/95iofd6/
+- 我老婆怎么是反派暴君 https://www.ycqnjy.com/book/95iodqo/
+- 今天还不可以造反吗？？？ https://www.ycqnjy.com/book/95io9lj/
+- 日化人生[科研] https://www.ycqnjy.com/book/95io9kk/
+- 巨物致富：回乡开钓场 https://www.ycqnjy.com/book/95io70j/
+- [斗罗]你已有取死之道 https://www.ycqnjy.com/book/95io5h2/
+- 镇守神州，从万里长城开始 https://www.ycqnjy.com/book/95io3gc/
+- 社畜Beta也能被顶A觊觎吗 https://www.ycqnjy.com/book/95io18q/
+- 我真不想当魔头的师妹 https://www.ycqnjy.com/book/95invon/
+- 禁止限制文主角转职龙傲天 https://www.ycqnjy.com/book/95inuno/
+- 青宁升仙录 https://www.ycqnjy.com/book/95inq79/
+- 她是反派的背景板母亲 https://www.ycqnjy.com/book/tbhqbh/
+- 在诡异世界扮演神明[快穿] https://www.ycqnjy.com/book/tbhoq3/
+- 社恐直播鉴宝，但带球跑 https://www.ycqnjy.com/book/tbhmva/
+- 天幕今天也在直播我搞基建 https://www.ycqnjy.com/book/tbhku0/
+- 获得七个彩虹共感娃娃 https://www.ycqnjy.com/book/tbhdmj/
+- 木叶RPG，恋爱系物语 https://www.ycqnjy.com/book/tbh9m9/
+- 被迫臣服冰山顶级大小姐O https://www.ycqnjy.com/book/tbh58m/
+- 始乱终弃清冷公子后 https://www.ycqnjy.com/book/tbh557/
+- 满级大佬成为养成系[娱乐圈] https://www.ycqnjy.com/book/tbh3r7/
+- 重力系杀手误入忍界记实录 https://www.ycqnjy.com/book/tbh0b2/
+- 过气男团ACE重生后 https://www.ycqnjy.com/book/tbgste/
+- 偷香窃玉 https://www.ycqnjy.com/book/tbgqpo/
+- 这谁的沙雕二次元心声！ https://www.ycqnjy.com/book/tbgopb/
+- 一枝枝怨 https://www.ycqnjy.com/book/tbgont/
+- 死遁后成了忍界白月光？ https://www.ycqnjy.com/book/tbgnrp/
+- 将妹妹嫁给别人后 https://www.ycqnjy.com/book/tbginm/
+- 标记母亲的前妻O后 https://www.ycqnjy.com/book/tbgh2s/
+- 荒山安居日常 https://www.ycqnjy.com/book/tbgg5c/
+- 道长，收收神通吧 https://www.ycqnjy.com/book/tbganl/
+- 异界求生从马甲开始 https://www.ycqnjy.com/book/tbg9st/
+- 韩团绿卡不想忍了 https://www.ycqnjy.com/book/tbg9pg/
+- 人气反派的马甲演绎实录 https://www.ycqnjy.com/book/tbg82p/
+- 卷王后妈，八零养娃 https://www.ycqnjy.com/book/tbg7ra/
+- 穿书留子，在线苟命 https://www.ycqnjy.com/book/tbfuct/
+- 春山慢 https://www.ycqnjy.com/book/tbftki/
+- 我家民宿，古人抢着上班 https://www.ycqnjy.com/book/tbfth0/
+- 漂亮病弱直男缠药封建大爹 https://www.ycqnjy.com/book/tbftag/
+- 悬刃之下 https://www.ycqnjy.com/book/tbfrm7/
+- 非人马甲与日俱增[升维] https://www.ycqnjy.com/book/tbfqq8/
+- 星海世界生存指南[无限] https://www.ycqnjy.com/book/tbfqla/
+- 老子顶A，凭什么当皇妃！ https://www.ycqnjy.com/book/tbfq24/
+- 哥你不能不要我 https://www.ycqnjy.com/book/tbfptf/
+- 全民求生:从小木屋到魔法农场 https://www.ycqnjy.com/book/2tuc9i/
+- 海岛求生：生活玩家种田囤货 https://www.ycqnjy.com/book/2tubp6/
+- 我有一座安全城 [赛诗会作品] https://www.ycqnjy.com/book/2tubng/
+- 我是唯一地上神国 [赛诗会作品] https://www.ycqnjy.com/book/2tubhc/
+- 大瑛弟国 https://www.ycqnjy.com/book/2tuas8/
+- 清澈女大的六零年代 https://www.ycqnjy.com/book/2tuarn/
+- [娱乐圈]过分美丽的她 https://www.ycqnjy.com/book/2tua9o/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.ycqnjy.com/book/9ckv0/
+- 女巫异世界打工指南[西幻] https://www.ycqnjy.com/book/9ckic/
+- 五十年代港城日常 https://www.ycqnjy.com/book/306i/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1285/index.md)
+- [最新热点小说](/site1285/newhot.md)
+- [人气小说](/site1285/b111.md)
+- [推荐小说](/site1285/recommend1.md)
+- [推荐小说列表](/site1285/recommend/index.md)
+- [热点小说](/site1285/hot/index.md)
+- [全本小说](/site1285/quanben/index.md)
+- [网站地图](/site1285/sitemap/index.md)
+- [标签](/site1285/tag/index.md)
+- [爱情小说](/site1285/category101/index.md)
+- [武侠小说](/site1285/category102/index.md)
+- [奇幻小说](/site1285/category103/index.md)
+- [仙侠小说](/site1285/category104/index.md)
+- [游戏小说](/site1285/category105/index.md)
+- [传奇小说](/site1285/category106/index.md)
+- [科幻小说](/site1285/category107/index.md)
+- [惊悚小说](/site1285/category109/index.md)
+- [悬疑小说](/site1285/category110/index.md)

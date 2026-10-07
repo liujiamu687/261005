@@ -1,0 +1,182 @@
+
+# 看剧文学网 - 书友最值得收藏的小说阅读网
+
+更新时间：2026-10-05 03:04:02
+
+看剧文学网，精选最好看的小说推荐给大家在线阅读。这里有网络小说大全，包括最火、最热门的小说最新章节，是书友最值得收藏的免费小说阅读网。 https://www.kanju788.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.kanju788.com/book/to4uro/
+- 破了剑道魁首的无情道后 https://www.kanju788.com/book/to4urm/
+- 那什么的小蜘蛛 https://www.kanju788.com/book/to4urk/
+- 港城暴发户的败家妻[年代] https://www.kanju788.com/book/to4urg/
+- 失忆后误把顶流对家当男朋友 https://www.kanju788.com/book/to4urf/
+- 一剑捅穿道侣后他变天道了 https://www.kanju788.com/book/to4ure/
+- 致镜汀 https://www.kanju788.com/book/to4ur9/
+- 假装Daddy儿子翻车后 https://www.kanju788.com/book/to4ur8/
+- [足球]被儿子队友求婚以后 https://www.kanju788.com/book/to4ur7/
+- 直播手术，外科天才打脸日常[重生] https://www.kanju788.com/book/to4ur5/
+- 胎穿到恶毒反派肚中 https://www.kanju788.com/book/to4ur4/
+- 今天被邪祟撅了吗？ https://www.kanju788.com/book/to4ur2/
+- 无法攻略的他[娱乐圈] https://www.kanju788.com/book/to4uqt/
+- 戏意 https://www.kanju788.com/book/to4uqq/
+- [综]恋与蜘蛛侠 https://www.kanju788.com/book/to4uqp/
+- 老板被我渣了两次？ https://www.kanju788.com/book/to4uqm/
+- 人鱼种草养毛茸茸 https://www.kanju788.com/book/to4uql/
+- 论人间失格与血鬼术的适配性 https://www.kanju788.com/book/to4uqk/
+- 王妃求子记 https://www.kanju788.com/book/to4uqi/
+- 黎明协奏曲 https://www.kanju788.com/book/to4uqh/
+- 他怎么还不提分手？ https://www.kanju788.com/book/to4uqd/
+- 真千金她一心向道 https://www.kanju788.com/book/to4uqb/
+- 在将军府任职男仆侍后 https://www.kanju788.com/book/to4upv/
+- 谁要给暴君当狗啊？！ https://www.kanju788.com/book/to4upr/
+- 禁止勾搭黑化万人迷 https://www.kanju788.com/book/to4upo/
+- 吉食已到 https://www.kanju788.com/book/to4upn/
+- 龙傲天求我挖他仙骨 https://www.kanju788.com/book/to4upj/
+- 陪嫁后被迫成了通房 https://www.kanju788.com/book/to4uph/
+- 路人攻今天救风尘了吗［快穿］ https://www.kanju788.com/book/to4upg/
+- 黑化超英抽卡中[综英美] https://www.kanju788.com/book/to4upe/
+- 重生不入东宫 https://www.kanju788.com/book/to4upc/
+- 鼬系如何在鸥台生存 https://www.kanju788.com/book/to4up9/
+- 超英都在阻止我黑化[综英美] https://www.kanju788.com/book/to4up7/
+- [综英美]这地图不对劲 https://www.kanju788.com/book/to4up6/
+- 妖狐崽崽，但全家普通人 https://www.kanju788.com/book/to4up5/
+- 男二就是要给龙傲天当老婆的 https://www.kanju788.com/book/to4up4/
+- 哥哥不是我的吗？[九零] https://www.kanju788.com/book/to4up2/
+- 哥，咱俩天下第一好 https://www.kanju788.com/book/to4uoq/
+- 我心有憾不可平[历史直播] https://www.kanju788.com/book/to4uon/
+- 金光裘 https://www.kanju788.com/book/to4uol/
+- 穿书九零，老实嫂子要嫁人 https://www.kanju788.com/book/to4uoj/
+- 穿进女儿国，误娶笨蛋美人 https://www.kanju788.com/book/to4uoh/
+- 她柔弱不能自理 https://www.kanju788.com/book/to4uog/
+- 橘子小狗只想打排球 https://www.kanju788.com/book/to4uoe/
+- 拒婚后，和联姻对象闪婚了 https://www.kanju788.com/book/to4uod/
+- 有限制体质的仙尊徒弟 https://www.kanju788.com/book/to4uoc/
+- 笨蛋美人主动和亲后 https://www.kanju788.com/book/to4uob/
+- 被坏狗盯上了 https://www.kanju788.com/book/to4uo8/
+- 和乙骨前辈网恋后 https://www.kanju788.com/book/to4uo0/
+- 谁家女主是野牦牛啊！ https://www.kanju788.com/book/to4unv/
+- 日向怎么通关忍界 https://www.kanju788.com/book/to4unu/
+- 少女暴君在乙游 https://www.kanju788.com/book/to4unt/
+- 洞房夜，我和夫君一起翻车 https://www.kanju788.com/book/to4unr/
+- ［西游］我的饭馆通大唐 https://www.kanju788.com/book/to4uno/
+- 谁是真正的猎物？ https://www.kanju788.com/book/to4unm/
+- 华夏卡牌，但亡国之君 https://www.kanju788.com/book/to4unl/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.kanju788.com/book/to4une/
+- 女装网骗到校草怎么办 https://www.kanju788.com/book/to4und/
+- [全职高手]走错片场要怎么办 https://www.kanju788.com/book/to4unb/
+- 全天下都在求太子殿下别死！ https://www.kanju788.com/book/to4un8/
+- 浪漫至死也致死 https://www.kanju788.com/book/to4un4/
+- 养媳欲离 https://www.kanju788.com/book/to4un3/
+- 穿成丫鬟，但绑定游戏面板 https://www.kanju788.com/book/to4umq/
+- 在运动番当顶级Bking https://www.kanju788.com/book/to4ump/
+- [诡秘之主]历史同人的神秘学用法 https://www.kanju788.com/book/to4umj/
+- 神棍六十年代再就业 https://www.kanju788.com/book/to4umg/
+- 心上春 https://www.kanju788.com/book/to4umd/
+- 漂亮知青说他是我未来老婆 https://www.kanju788.com/book/to4umb/
+- [全职高手]我家攻坚撒手没 https://www.kanju788.com/book/to4uma/
+- 宿傩妹妹今天也在艰难求生 https://www.kanju788.com/book/to4ulp/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.kanju788.com/book/to4ull/
+- [娱乐圈]学医救不了性冷淡！ https://www.kanju788.com/book/to4uka/
+- 清穿女回来后[天幕] https://www.kanju788.com/book/to4uiu/
+- 康熙宠妃日常 https://www.kanju788.com/book/to4ugc/
+- 这个替嫁让我来！ https://www.kanju788.com/book/to4ug9/
+- 从1951开始 https://www.kanju788.com/book/to4ufq/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.kanju788.com/book/to4ide/
+- 今天还不可以造反吗？？？ https://www.kanju788.com/book/to4csr/
+- 喂，别睡了！ https://www.kanju788.com/book/to473m/
+- 九零重组小家庭 https://www.kanju788.com/book/to46s2/
+- 我老婆怎么是反派暴君 https://www.kanju788.com/book/to46ih/
+- [足球]足坛人生模拟器 https://www.kanju788.com/book/to45s9/
+- 十二星座请选择你的安全屋 https://www.kanju788.com/book/to41ba/
+- 从维多利亚时代开始 https://www.kanju788.com/book/to3oms/
+- 昭暮 https://www.kanju788.com/book/to3ms7/
+- 星际团宠小人鱼 [赛诗会作品] https://www.kanju788.com/book/to3jnv/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.kanju788.com/book/to3jfl/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.kanju788.com/book/to3ckd/
+- 食明 https://www.kanju788.com/book/to39h7/
+- 诡话第一boss [赛诗会作品] https://www.kanju788.com/book/to36eh/
+- 镇守神州，从万里长城开始 https://www.kanju788.com/book/to30j0/
+- 禁止限制文主角转职龙傲天 https://www.kanju788.com/book/to30at/
+- [斗罗]你已有取死之道 https://www.kanju788.com/book/to2u83/
+- 社畜Beta也能被顶A觊觎吗 https://www.kanju788.com/book/to2s93/
+- 我真不想当魔头的师妹 https://www.kanju788.com/book/to2kr6/
+- 在这个圈子，叫“跟” https://www.kanju788.com/book/to2jns/
+- 青宁升仙录 https://www.kanju788.com/book/to2jf0/
+- 被鬼怪宠爱的漂亮书生 https://www.kanju788.com/book/to2b0c/
+- 在诡异世界扮演神明[快穿] https://www.kanju788.com/book/to29d5/
+- 社恐直播鉴宝，但带球跑 https://www.kanju788.com/book/to28nj/
+- 韩团绿卡不想忍了 https://www.kanju788.com/book/to21jr/
+- 获得七个彩虹共感娃娃 https://www.kanju788.com/book/to1vlv/
+- 被迫臣服冰山顶级大小姐O https://www.kanju788.com/book/to1u24/
+- 木叶RPG，恋爱系物语 https://www.kanju788.com/book/to1u13/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.kanju788.com/book/to1tpe/
+- 死遁后成了忍界白月光？ https://www.kanju788.com/book/to1qpt/
+- 耀眼的他 https://www.kanju788.com/book/to1q34/
+- 过气男团ACE重生后 https://www.kanju788.com/book/to1pjd/
+- 哥你不能不要我 https://www.kanju788.com/book/to1oe8/
+- 被小蜘蛛听见心声后 https://www.kanju788.com/book/to1o6o/
+- 言不由衷 https://www.kanju788.com/book/to1n27/
+- 始乱终弃清冷公子后 https://www.kanju788.com/book/to1m0q/
+- 满级大佬成为养成系[娱乐圈] https://www.kanju788.com/book/to1lun/
+- 这谁的沙雕二次元心声！ https://www.kanju788.com/book/to1lai/
+- 卷王后妈，八零养娃 https://www.kanju788.com/book/to1kpb/
+- 重力系杀手误入忍界记实录 https://www.kanju788.com/book/to1jvd/
+- 将妹妹嫁给别人后 https://www.kanju788.com/book/to1j23/
+- 穿书留子，在线苟命 https://www.kanju788.com/book/to1fmb/
+- 偷香窃玉 https://www.kanju788.com/book/to1fgi/
+- 一枝枝怨 https://www.kanju788.com/book/to1ds2/
+- 女巫异世界打工指南[西幻] https://www.kanju788.com/book/to16na/
+- 幸村女友，但赛博除妖师 https://www.kanju788.com/book/to16a4/
+- 标记母亲的前妻O后 https://www.kanju788.com/book/to13fd/
+- 荒山安居日常 https://www.kanju788.com/book/to10q9/
+- 人气反派的马甲演绎实录 https://www.kanju788.com/book/to0vs7/
+- 全民求生里不是这样的！ https://www.kanju788.com/book/to0tfl/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.kanju788.com/book/to0ssc/
+- 异界求生从马甲开始 https://www.kanju788.com/book/to0s8a/
+- 道长，收收神通吧 https://www.kanju788.com/book/to0qhj/
+- 欢迎光临，万世极乐 https://www.kanju788.com/book/to0lv5/
+- 我家民宿，古人抢着上班 https://www.kanju788.com/book/to0f0a/
+- 春山慢 https://www.kanju788.com/book/to0es8/
+- 全民求生：我在森林里当初级魔法师 https://www.kanju788.com/book/to0dn9/
+- 非人马甲与日俱增[升维] https://www.kanju788.com/book/to0dfc/
+- 渴肤症总裁的秘密情人 https://www.kanju788.com/book/to0cmb/
+- 老子顶A，凭什么当皇妃！ https://www.kanju788.com/book/to0cij/
+- 漂亮病弱直男缠药封建大爹 https://www.kanju788.com/book/to0ceu/
+- 星海世界生存指南[无限] https://www.kanju788.com/book/to0a9a/
+- 悬刃之下 https://www.kanju788.com/book/to0a24/
+- 巨物致富：回乡开钓场 https://www.kanju788.com/book/tnvdcj/
+- 魔物堆里的人类幼崽 https://www.kanju788.com/book/tnvdar/
+- 天幕今天也在直播我搞基建 https://www.kanju788.com/book/tnvd86/
+- 我有一座安全城 [赛诗会作品] https://www.kanju788.com/book/tnvcrk/
+- 大瑛弟国 https://www.kanju788.com/book/tnvcct/
+- [娱乐圈]过分美丽的她 https://www.kanju788.com/book/tnvc07/
+- 她是反派的背景板母亲 https://www.kanju788.com/book/tnvbtu/
+- 反派白月光不按剧情死[快穿] https://www.kanju788.com/book/tnvbtj/
+- 五十年代港城日常 https://www.kanju788.com/book/tnvbe3/
+- 海岛求生：生活玩家种田囤货 https://www.kanju788.com/book/tnvau3/
+- 我是唯一地上神国 [赛诗会作品] https://www.kanju788.com/book/tnvapu/
+- 日化人生[科研] https://www.kanju788.com/book/tnvaor/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.kanju788.com/book/tnvaku/
+- 清澈女大的六零年代 https://www.kanju788.com/book/tnvai1/
+- 全民求生:从小木屋到魔法农场 https://www.kanju788.com/book/tnvaes/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1348/index.md)
+- [最新热点小说](/site1348/newhot.md)
+- [人气小说](/site1348/b111.md)
+- [推荐小说](/site1348/recommend1.md)
+- [推荐小说列表](/site1348/recommend/index.md)
+- [热点小说](/site1348/hot/index.md)
+- [全本小说](/site1348/quanben/index.md)
+- [网站地图](/site1348/sitemap/index.md)
+- [标签](/site1348/tag/index.md)
+- [爱情小说](/site1348/category101/index.md)
+- [武侠小说](/site1348/category102/index.md)
+- [奇幻小说](/site1348/category103/index.md)
+- [仙侠小说](/site1348/category104/index.md)
+- [游戏小说](/site1348/category105/index.md)
+- [传奇小说](/site1348/category106/index.md)
+- [科幻小说](/site1348/category107/index.md)
+- [惊悚小说](/site1348/category109/index.md)
+- [悬疑小说](/site1348/category110/index.md)

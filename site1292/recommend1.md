@@ -1,0 +1,182 @@
+
+# 酷匠小说网 - 专注手机阅读，免费小说在线阅读及下载
+
+更新时间：2026-10-05 03:07:13
+
+酷匠小说网提供最新免费小说在线阅读及下载。包括都市小说，玄幻小说，言情小说等。精致排版，每天更新，打造极致阅读体验，让您静享“精品阅读时光”。 https://www.yumin66.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.yumin66.com/book/5q5nn3/
+- 有限制体质的仙尊徒弟 https://www.yumin66.com/book/5q5nn2/
+- 在运动番当顶级Bking https://www.yumin66.com/book/5q5nn1/
+- [诡秘之主]历史同人的神秘学用法 https://www.yumin66.com/book/5q5nn0/
+- 全民求生里不是这样的！ https://www.yumin66.com/book/5q5nmv/
+- 假装Daddy儿子翻车后 https://www.yumin66.com/book/5q5nms/
+- 神棍六十年代再就业 https://www.yumin66.com/book/5q5nmr/
+- 胎穿到恶毒反派肚中 https://www.yumin66.com/book/5q5nmq/
+- 谁家女主是野牦牛啊！ https://www.yumin66.com/book/5q5nmp/
+- 穿书九零，老实嫂子要嫁人 https://www.yumin66.com/book/5q5nmo/
+- 穿进女儿国，误娶笨蛋美人 https://www.yumin66.com/book/5q5nmn/
+- 失忆后误把顶流对家当男朋友 https://www.yumin66.com/book/5q5nmm/
+- 论人间失格与血鬼术的适配性 https://www.yumin66.com/book/5q5nml/
+- 金光裘 https://www.yumin66.com/book/5q5nmk/
+- 王妃求子记 https://www.yumin66.com/book/5q5nmj/
+- 人鱼种草养毛茸茸 https://www.yumin66.com/book/5q5nmi/
+- 养媳欲离 https://www.yumin66.com/book/5q5nmh/
+- 他怎么还不提分手？ https://www.yumin66.com/book/5q5nmg/
+- 重生不入东宫 https://www.yumin66.com/book/5q5nmf/
+- 哥哥不是我的吗？[九零] https://www.yumin66.com/book/5q5nme/
+- 黑化超英抽卡中[综英美] https://www.yumin66.com/book/5q5nmd/
+- 少女暴君在乙游 https://www.yumin66.com/book/5q5nmc/
+- 谁要给暴君当狗啊？！ https://www.yumin66.com/book/5q5nma/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.yumin66.com/book/5q5nm9/
+- 路人攻今天救风尘了吗［快穿］ https://www.yumin66.com/book/5q5nm8/
+- 妖狐崽崽，但全家普通人 https://www.yumin66.com/book/5q5nm7/
+- 破了剑道魁首的无情道后 https://www.yumin66.com/book/5q5nm6/
+- 我心有憾不可平[历史直播] https://www.yumin66.com/book/5q5nm5/
+- 和乙骨前辈网恋后 https://www.yumin66.com/book/5q5nm4/
+- 橘子小狗只想打排球 https://www.yumin66.com/book/5q5nm3/
+- ［西游］我的饭馆通大唐 https://www.yumin66.com/book/5q5nm2/
+- 男二就是要给龙傲天当老婆的 https://www.yumin66.com/book/5q5nm1/
+- [全职高手]我家攻坚撒手没 https://www.yumin66.com/book/5q5nm0/
+- 浪漫至死也致死 https://www.yumin66.com/book/5q5nlv/
+- 哥，咱俩天下第一好 https://www.yumin66.com/book/5q5nlu/
+- 港城暴发户的败家妻[年代] https://www.yumin66.com/book/5q5nlt/
+- 心上春 https://www.yumin66.com/book/5q5nls/
+- 女装网骗到校草怎么办 https://www.yumin66.com/book/5q5nlr/
+- 鼬系如何在鸥台生存 https://www.yumin66.com/book/5q5nlq/
+- 无法攻略的他[娱乐圈] https://www.yumin66.com/book/5q5nlp/
+- 禁止勾搭黑化万人迷 https://www.yumin66.com/book/5q5nlo/
+- 吉食已到 https://www.yumin66.com/book/5q5nln/
+- [足球]被儿子队友求婚以后 https://www.yumin66.com/book/5q5nlm/
+- [综]恋与蜘蛛侠 https://www.yumin66.com/book/5q5nlk/
+- 漂亮知青说他是我未来老婆 https://www.yumin66.com/book/5q5nlj/
+- 戏意 https://www.yumin66.com/book/5q5nli/
+- 拒婚后，和联姻对象闪婚了 https://www.yumin66.com/book/5q5nlh/
+- [全职高手]走错片场要怎么办 https://www.yumin66.com/book/5q5nlg/
+- 笨蛋美人主动和亲后 https://www.yumin66.com/book/5q5nlf/
+- 穿成丫鬟，但绑定游戏面板 https://www.yumin66.com/book/5q5nld/
+- 日向怎么通关忍界 https://www.yumin66.com/book/5q5nlb/
+- 致镜汀 https://www.yumin66.com/book/5q5nla/
+- 黎明协奏曲 https://www.yumin66.com/book/5q5nl9/
+- 谁是真正的猎物？ https://www.yumin66.com/book/5q5nl8/
+- 真千金她一心向道 https://www.yumin66.com/book/5q5nl7/
+- 全民求生：我在森林里当初级魔法师 https://www.yumin66.com/book/5q5nl6/
+- 今天被邪祟撅了吗？ https://www.yumin66.com/book/5q5nl5/
+- 在将军府任职男仆侍后 https://www.yumin66.com/book/5q5nl4/
+- 一剑捅穿道侣后他变天道了 https://www.yumin66.com/book/5q5nl3/
+- 直播手术，外科天才打脸日常[重生] https://www.yumin66.com/book/5q5nl1/
+- 被坏狗盯上了 https://www.yumin66.com/book/5q5nl0/
+- 欢迎光临，万世极乐 https://www.yumin66.com/book/5q5nkv/
+- 陪嫁后被迫成了通房 https://www.yumin66.com/book/5q5nku/
+- 渴肤症总裁的秘密情人 https://www.yumin66.com/book/5q5nkt/
+- 老板被我渣了两次？ https://www.yumin66.com/book/5q5nks/
+- 洞房夜，我和夫君一起翻车 https://www.yumin66.com/book/5q5nkr/
+- 龙傲天求我挖他仙骨 https://www.yumin66.com/book/5q5nkq/
+- 超英都在阻止我黑化[综英美] https://www.yumin66.com/book/5q5nkp/
+- 华夏卡牌，但亡国之君 https://www.yumin66.com/book/5q5nko/
+- 全天下都在求太子殿下别死！ https://www.yumin66.com/book/5q5nkn/
+- 她柔弱不能自理 https://www.yumin66.com/book/5q5nkm/
+- [综英美]这地图不对劲 https://www.yumin66.com/book/5q5nkl/
+- 那什么的小蜘蛛 https://www.yumin66.com/book/5q5nkk/
+- 这个替嫁让我来！ https://www.yumin66.com/book/5q5nkf/
+- 言不由衷 https://www.yumin66.com/book/5q5njv/
+- 宿傩妹妹今天也在艰难求生 https://www.yumin66.com/book/5q5njn/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.yumin66.com/book/5q5ni6/
+- [娱乐圈]学医救不了性冷淡！ https://www.yumin66.com/book/5q5ngi/
+- 被鬼怪宠爱的漂亮书生 https://www.yumin66.com/book/5q5nfv/
+- 被小蜘蛛听见心声后 https://www.yumin66.com/book/5q5neq/
+- 清穿女回来后[天幕] https://www.yumin66.com/book/5q5ne7/
+- 从1951开始 https://www.yumin66.com/book/5q5ndl/
+- 在这个圈子，叫“跟” https://www.yumin66.com/book/5q5ndd/
+- 康熙宠妃日常 https://www.yumin66.com/book/5q5nd1/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.yumin66.com/book/5q5n7p/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.yumin66.com/book/5q5n7m/
+- 十二星座请选择你的安全屋 https://www.yumin66.com/book/5q5n6v/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.yumin66.com/book/5q5n5r/
+- 星际团宠小人鱼 [赛诗会作品] https://www.yumin66.com/book/5q5n58/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.yumin66.com/book/5q5n4h/
+- 魔物堆里的人类幼崽 https://www.yumin66.com/book/5q5n1v/
+- 反派白月光不按剧情死[快穿] https://www.yumin66.com/book/5q5n0d/
+- 幸村女友，但赛博除妖师 https://www.yumin66.com/book/5q5lo3/
+- 昭暮 https://www.yumin66.com/book/5q5c2s/
+- [足球]足坛人生模拟器 https://www.yumin66.com/book/5q46ss/
+- 九零重组小家庭 https://www.yumin66.com/book/5q45vl/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yumin66.com/book/5q3msv/
+- 从维多利亚时代开始 https://www.yumin66.com/book/5q3dip/
+- 耀眼的他 https://www.yumin66.com/book/5q2up9/
+- 食明 https://www.yumin66.com/book/5q2uee/
+- 诡话第一boss [赛诗会作品] https://www.yumin66.com/book/5q2rb1/
+- 喂，别睡了！ https://www.yumin66.com/book/5q2p3g/
+- 我老婆怎么是反派暴君 https://www.yumin66.com/book/5q2lp4/
+- 日化人生[科研] https://www.yumin66.com/book/5q2j5g/
+- 今天还不可以造反吗？？？ https://www.yumin66.com/book/5q2itf/
+- 巨物致富：回乡开钓场 https://www.yumin66.com/book/5q2f8h/
+- 镇守神州，从万里长城开始 https://www.yumin66.com/book/5q2ddu/
+- [斗罗]你已有取死之道 https://www.yumin66.com/book/5q2aql/
+- 社畜Beta也能被顶A觊觎吗 https://www.yumin66.com/book/5q297q/
+- 我真不想当魔头的师妹 https://www.yumin66.com/book/5q26pk/
+- 禁止限制文主角转职龙傲天 https://www.yumin66.com/book/5q26hs/
+- 青宁升仙录 https://www.yumin66.com/book/5q23ps/
+- 在诡异世界扮演神明[快穿] https://www.yumin66.com/book/im0q2/
+- 她是反派的背景板母亲 https://www.yumin66.com/book/ilvsv/
+- 社恐直播鉴宝，但带球跑 https://www.yumin66.com/book/ilup0/
+- 天幕今天也在直播我搞基建 https://www.yumin66.com/book/iltao/
+- 获得七个彩虹共感娃娃 https://www.yumin66.com/book/ilm09/
+- 木叶RPG，恋爱系物语 https://www.yumin66.com/book/iljr8/
+- 满级大佬成为养成系[娱乐圈] https://www.yumin66.com/book/ilc16/
+- 始乱终弃清冷公子后 https://www.yumin66.com/book/ilaem/
+- 被迫臣服冰山顶级大小姐O https://www.yumin66.com/book/il8co/
+- 重力系杀手误入忍界记实录 https://www.yumin66.com/book/il6i6/
+- 过气男团ACE重生后 https://www.yumin66.com/book/il4el/
+- 偷香窃玉 https://www.yumin66.com/book/il280/
+- 这谁的沙雕二次元心声！ https://www.yumin66.com/book/il1eo/
+- 死遁后成了忍界白月光？ https://www.yumin66.com/book/il0pk/
+- 一枝枝怨 https://www.yumin66.com/book/iksur/
+- 将妹妹嫁给别人后 https://www.yumin66.com/book/ikrhl/
+- 标记母亲的前妻O后 https://www.yumin66.com/book/iknia/
+- 荒山安居日常 https://www.yumin66.com/book/ikncl/
+- 韩团绿卡不想忍了 https://www.yumin66.com/book/ikis7/
+- 异界求生从马甲开始 https://www.yumin66.com/book/iki8i/
+- 道长，收收神通吧 https://www.yumin66.com/book/ikgtf/
+- 人气反派的马甲演绎实录 https://www.yumin66.com/book/ikep4/
+- 卷王后妈，八零养娃 https://www.yumin66.com/book/ikdvf/
+- 穿书留子，在线苟命 https://www.yumin66.com/book/ik7c4/
+- 漂亮病弱直男缠药封建大爹 https://www.yumin66.com/book/ik6j2/
+- 春山慢 https://www.yumin66.com/book/ik6gk/
+- 我家民宿，古人抢着上班 https://www.yumin66.com/book/ik65d/
+- 非人马甲与日俱增[升维] https://www.yumin66.com/book/ik4e5/
+- 悬刃之下 https://www.yumin66.com/book/ik2jv/
+- 老子顶A，凭什么当皇妃！ https://www.yumin66.com/book/ik1jn/
+- 星海世界生存指南[无限] https://www.yumin66.com/book/ik1f5/
+- 哥你不能不要我 https://www.yumin66.com/book/ijvg6/
+- 我是唯一地上神国 [赛诗会作品] https://www.yumin66.com/book/1rj6u/
+- 全民求生:从小木屋到魔法农场 https://www.yumin66.com/book/1ritm/
+- 大瑛弟国 https://www.yumin66.com/book/1ri97/
+- [娱乐圈]过分美丽的她 https://www.yumin66.com/book/1ri3h/
+- 女巫异世界打工指南[西幻] https://www.yumin66.com/book/1rhq4/
+- 我有一座安全城 [赛诗会作品] https://www.yumin66.com/book/1rhld/
+- 五十年代港城日常 https://www.yumin66.com/book/1rhj3/
+- 海岛求生：生活玩家种田囤货 https://www.yumin66.com/book/1rhdr/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.yumin66.com/book/1rhdk/
+- 清澈女大的六零年代 https://www.yumin66.com/book/5upa/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1292/index.md)
+- [最新热点小说](/site1292/newhot.md)
+- [人气小说](/site1292/b111.md)
+- [推荐小说](/site1292/recommend1.md)
+- [推荐小说列表](/site1292/recommend/index.md)
+- [热点小说](/site1292/hot/index.md)
+- [全本小说](/site1292/quanben/index.md)
+- [网站地图](/site1292/sitemap/index.md)
+- [标签](/site1292/tag/index.md)
+- [爱情小说](/site1292/category101/index.md)
+- [武侠小说](/site1292/category102/index.md)
+- [奇幻小说](/site1292/category103/index.md)
+- [仙侠小说](/site1292/category104/index.md)
+- [游戏小说](/site1292/category105/index.md)
+- [传奇小说](/site1292/category106/index.md)
+- [科幻小说](/site1292/category107/index.md)
+- [惊悚小说](/site1292/category109/index.md)
+- [悬疑小说](/site1292/category110/index.md)

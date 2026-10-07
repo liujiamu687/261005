@@ -1,0 +1,182 @@
+
+# 故事来书吧-免费阅读全网最新最热小说
+
+更新时间：2026-10-05 03:03:44
+
+故事来书吧提供海量免费无弹窗小说在线阅读服务，涵盖言情、都市、玄幻、武侠等多种类型，让你随时随地享受阅读的乐趣。 https://www.gushi688.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.gushi688.com/book/5121d7m/
+- 破了剑道魁首的无情道后 https://www.gushi688.com/book/5121d7k/
+- 被坏狗盯上了 https://www.gushi688.com/book/5121d7j/
+- 失忆后误把顶流对家当男朋友 https://www.gushi688.com/book/5121d7g/
+- 谁是真正的猎物？ https://www.gushi688.com/book/5121d7d/
+- 那什么的小蜘蛛 https://www.gushi688.com/book/5121d7c/
+- [全职高手]我家攻坚撒手没 https://www.gushi688.com/book/5121d7b/
+- 穿成丫鬟，但绑定游戏面板 https://www.gushi688.com/book/5121d75/
+- 在运动番当顶级Bking https://www.gushi688.com/book/5121d71/
+- [足球]被儿子队友求婚以后 https://www.gushi688.com/book/5121d70/
+- 假装Daddy儿子翻车后 https://www.gushi688.com/book/5121d6p/
+- [综]恋与蜘蛛侠 https://www.gushi688.com/book/5121d6o/
+- 陪嫁后被迫成了通房 https://www.gushi688.com/book/5121d6m/
+- 男二就是要给龙傲天当老婆的 https://www.gushi688.com/book/5121d6g/
+- 全天下都在求太子殿下别死！ https://www.gushi688.com/book/5121d6e/
+- 王妃求子记 https://www.gushi688.com/book/5121d6b/
+- 华夏卡牌，但亡国之君 https://www.gushi688.com/book/5121d67/
+- 无法攻略的他[娱乐圈] https://www.gushi688.com/book/5121d66/
+- 谁要给暴君当狗啊？！ https://www.gushi688.com/book/5121d64/
+- 洞房夜，我和夫君一起翻车 https://www.gushi688.com/book/5121d61/
+- 我心有憾不可平[历史直播] https://www.gushi688.com/book/5121d60/
+- 笨蛋美人主动和亲后 https://www.gushi688.com/book/5121d5t/
+- 橘子小狗只想打排球 https://www.gushi688.com/book/5121d5s/
+- 少女暴君在乙游 https://www.gushi688.com/book/5121d5r/
+- 吉食已到 https://www.gushi688.com/book/5121d5q/
+- 禁止勾搭黑化万人迷 https://www.gushi688.com/book/5121d5o/
+- 哥，咱俩天下第一好 https://www.gushi688.com/book/5121d5n/
+- 重生不入东宫 https://www.gushi688.com/book/5121d5m/
+- [全职高手]走错片场要怎么办 https://www.gushi688.com/book/5121d5g/
+- 哥哥不是我的吗？[九零] https://www.gushi688.com/book/5121d5e/
+- 戏意 https://www.gushi688.com/book/5121d5d/
+- 一剑捅穿道侣后他变天道了 https://www.gushi688.com/book/5121d50/
+- 胎穿到恶毒反派肚中 https://www.gushi688.com/book/5121d4v/
+- 穿书九零，老实嫂子要嫁人 https://www.gushi688.com/book/5121d4t/
+- 妖狐崽崽，但全家普通人 https://www.gushi688.com/book/5121d4s/
+- 老板被我渣了两次？ https://www.gushi688.com/book/5121d4q/
+- 黎明协奏曲 https://www.gushi688.com/book/5121d4n/
+- 致镜汀 https://www.gushi688.com/book/5121d4m/
+- 黑化超英抽卡中[综英美] https://www.gushi688.com/book/5121d4i/
+- 港城暴发户的败家妻[年代] https://www.gushi688.com/book/5121d4g/
+- 在将军府任职男仆侍后 https://www.gushi688.com/book/5121d4f/
+- 他怎么还不提分手？ https://www.gushi688.com/book/5121d4d/
+- [诡秘之主]历史同人的神秘学用法 https://www.gushi688.com/book/5121d4a/
+- 真千金她一心向道 https://www.gushi688.com/book/5121d49/
+- 论人间失格与血鬼术的适配性 https://www.gushi688.com/book/5121d47/
+- 谁家女主是野牦牛啊！ https://www.gushi688.com/book/5121d45/
+- 路人攻今天救风尘了吗［快穿］ https://www.gushi688.com/book/5121d43/
+- ［西游］我的饭馆通大唐 https://www.gushi688.com/book/5121d41/
+- 超英都在阻止我黑化[综英美] https://www.gushi688.com/book/5121d3s/
+- 心上春 https://www.gushi688.com/book/5121d3p/
+- 拒婚后，和联姻对象闪婚了 https://www.gushi688.com/book/5121d3k/
+- 龙傲天求我挖他仙骨 https://www.gushi688.com/book/5121d3h/
+- 穿进女儿国，误娶笨蛋美人 https://www.gushi688.com/book/5121d3f/
+- 浪漫至死也致死 https://www.gushi688.com/book/5121d3d/
+- 她柔弱不能自理 https://www.gushi688.com/book/5121d39/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.gushi688.com/book/5121d38/
+- 人鱼种草养毛茸茸 https://www.gushi688.com/book/5121d37/
+- [综英美]这地图不对劲 https://www.gushi688.com/book/5121d36/
+- 女装网骗到校草怎么办 https://www.gushi688.com/book/5121d31/
+- 鼬系如何在鸥台生存 https://www.gushi688.com/book/5121d30/
+- 漂亮知青说他是我未来老婆 https://www.gushi688.com/book/5121d2u/
+- 有限制体质的仙尊徒弟 https://www.gushi688.com/book/5121d2s/
+- 神棍六十年代再就业 https://www.gushi688.com/book/5121d2r/
+- 今天被邪祟撅了吗？ https://www.gushi688.com/book/5121d2p/
+- 直播手术，外科天才打脸日常[重生] https://www.gushi688.com/book/5121d2n/
+- 金光裘 https://www.gushi688.com/book/5121d2m/
+- 和乙骨前辈网恋后 https://www.gushi688.com/book/5121d2l/
+- 养媳欲离 https://www.gushi688.com/book/5121d2e/
+- 日向怎么通关忍界 https://www.gushi688.com/book/5121d29/
+- [娱乐圈]学医救不了性冷淡！ https://www.gushi688.com/book/5121d12/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.gushi688.com/book/5121d0q/
+- 宿傩妹妹今天也在艰难求生 https://www.gushi688.com/book/5121d01/
+- 这个替嫁让我来！ https://www.gushi688.com/book/5121cup/
+- 清穿女回来后[天幕] https://www.gushi688.com/book/5121cuo/
+- 从1951开始 https://www.gushi688.com/book/5121cs0/
+- 康熙宠妃日常 https://www.gushi688.com/book/5121cqm/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.gushi688.com/book/51210os/
+- 今天还不可以造反吗？？？ https://www.gushi688.com/book/5120r7u/
+- 喂，别睡了！ https://www.gushi688.com/book/5120ljk/
+- 九零重组小家庭 https://www.gushi688.com/book/5120l9c/
+- 我老婆怎么是反派暴君 https://www.gushi688.com/book/5120kv7/
+- [足球]足坛人生模拟器 https://www.gushi688.com/book/5120k8n/
+- 十二星座请选择你的安全屋 https://www.gushi688.com/book/5120fol/
+- 从维多利亚时代开始 https://www.gushi688.com/book/5120747/
+- 昭暮 https://www.gushi688.com/book/512055g/
+- 星际团宠小人鱼 [赛诗会作品] https://www.gushi688.com/book/512021u/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.gushi688.com/book/5120212/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.gushi688.com/book/511vqpi/
+- 食明 https://www.gushi688.com/book/511vo2l/
+- 诡话第一boss [赛诗会作品] https://www.gushi688.com/book/511vksd/
+- 镇守神州，从万里长城开始 https://www.gushi688.com/book/511vgqi/
+- 禁止限制文主角转职龙傲天 https://www.gushi688.com/book/511vf0c/
+- [斗罗]你已有取死之道 https://www.gushi688.com/book/511vc6q/
+- 社畜Beta也能被顶A觊觎吗 https://www.gushi688.com/book/511v8of/
+- 我真不想当魔头的师妹 https://www.gushi688.com/book/511v50n/
+- 在这个圈子，叫“跟” https://www.gushi688.com/book/511v1si/
+- 青宁升仙录 https://www.gushi688.com/book/511v158/
+- 社恐直播鉴宝，但带球跑 https://www.gushi688.com/book/511uohg/
+- 在诡异世界扮演神明[快穿] https://www.gushi688.com/book/511unpe/
+- 被鬼怪宠爱的漂亮书生 https://www.gushi688.com/book/511un1i/
+- 韩团绿卡不想忍了 https://www.gushi688.com/book/511uepv/
+- 获得七个彩虹共感娃娃 https://www.gushi688.com/book/511uemt/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.gushi688.com/book/511udtm/
+- 木叶RPG，恋爱系物语 https://www.gushi688.com/book/511udar/
+- 被迫臣服冰山顶级大小姐O https://www.gushi688.com/book/511ubp6/
+- 死遁后成了忍界白月光？ https://www.gushi688.com/book/511u9ii/
+- 耀眼的他 https://www.gushi688.com/book/511u8bi/
+- 言不由衷 https://www.gushi688.com/book/511u7ai/
+- 过气男团ACE重生后 https://www.gushi688.com/book/511u6vb/
+- 被小蜘蛛听见心声后 https://www.gushi688.com/book/511u6es/
+- 哥你不能不要我 https://www.gushi688.com/book/511u55s/
+- 满级大佬成为养成系[娱乐圈] https://www.gushi688.com/book/511u52n/
+- 始乱终弃清冷公子后 https://www.gushi688.com/book/511u4bk/
+- 重力系杀手误入忍界记实录 https://www.gushi688.com/book/511u3s0/
+- 这谁的沙雕二次元心声！ https://www.gushi688.com/book/511u3ms/
+- 卷王后妈，八零养娃 https://www.gushi688.com/book/511u36a/
+- 将妹妹嫁给别人后 https://www.gushi688.com/book/511u05d/
+- 穿书留子，在线苟命 https://www.gushi688.com/book/511tuoa/
+- 偷香窃玉 https://www.gushi688.com/book/511ttml/
+- 一枝枝怨 https://www.gushi688.com/book/511tqnf/
+- 幸村女友，但赛博除妖师 https://www.gushi688.com/book/511tlnv/
+- 女巫异世界打工指南[西幻] https://www.gushi688.com/book/511tlmh/
+- 标记母亲的前妻O后 https://www.gushi688.com/book/511ti0f/
+- 荒山安居日常 https://www.gushi688.com/book/511tf09/
+- 人气反派的马甲演绎实录 https://www.gushi688.com/book/511tdns/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.gushi688.com/book/511tbg9/
+- 全民求生里不是这样的！ https://www.gushi688.com/book/511tb5m/
+- 异界求生从马甲开始 https://www.gushi688.com/book/511t9lr/
+- 道长，收收神通吧 https://www.gushi688.com/book/511t93j/
+- 欢迎光临，万世极乐 https://www.gushi688.com/book/511t3r5/
+- 春山慢 https://www.gushi688.com/book/511su9f/
+- 我家民宿，古人抢着上班 https://www.gushi688.com/book/511su75/
+- 漂亮病弱直男缠药封建大爹 https://www.gushi688.com/book/511srhd/
+- 非人马甲与日俱增[升维] https://www.gushi688.com/book/511sqf2/
+- 全民求生：我在森林里当初级魔法师 https://www.gushi688.com/book/511spju/
+- 渴肤症总裁的秘密情人 https://www.gushi688.com/book/511sph1/
+- 老子顶A，凭什么当皇妃！ https://www.gushi688.com/book/511sp6o/
+- 悬刃之下 https://www.gushi688.com/book/511sp5k/
+- 星海世界生存指南[无限] https://www.gushi688.com/book/511sne6/
+- 巨物致富：回乡开钓场 https://www.gushi688.com/book/511rqv9/
+- 大瑛弟国 https://www.gushi688.com/book/511rqld/
+- 我是唯一地上神国 [赛诗会作品] https://www.gushi688.com/book/511rqi8/
+- 魔物堆里的人类幼崽 https://www.gushi688.com/book/511rqan/
+- 海岛求生：生活玩家种田囤货 https://www.gushi688.com/book/511rq69/
+- 清澈女大的六零年代 https://www.gushi688.com/book/511rq3r/
+- [娱乐圈]过分美丽的她 https://www.gushi688.com/book/511rpqt/
+- 我有一座安全城 [赛诗会作品] https://www.gushi688.com/book/511rppg/
+- 日化人生[科研] https://www.gushi688.com/book/511rpaj/
+- 五十年代港城日常 https://www.gushi688.com/book/511rp87/
+- 全民求生:从小木屋到魔法农场 https://www.gushi688.com/book/511rp6q/
+- 天幕今天也在直播我搞基建 https://www.gushi688.com/book/511rp6a/
+- 她是反派的背景板母亲 https://www.gushi688.com/book/511rp51/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.gushi688.com/book/511rotp/
+- 反派白月光不按剧情死[快穿] https://www.gushi688.com/book/511romg/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1347/index.md)
+- [最新热点小说](/site1347/newhot.md)
+- [人气小说](/site1347/b111.md)
+- [推荐小说](/site1347/recommend1.md)
+- [推荐小说列表](/site1347/recommend/index.md)
+- [热点小说](/site1347/hot/index.md)
+- [全本小说](/site1347/quanben/index.md)
+- [网站地图](/site1347/sitemap/index.md)
+- [标签](/site1347/tag/index.md)
+- [爱情小说](/site1347/category101/index.md)
+- [武侠小说](/site1347/category102/index.md)
+- [奇幻小说](/site1347/category103/index.md)
+- [仙侠小说](/site1347/category104/index.md)
+- [游戏小说](/site1347/category105/index.md)
+- [传奇小说](/site1347/category106/index.md)
+- [科幻小说](/site1347/category107/index.md)
+- [惊悚小说](/site1347/category109/index.md)
+- [悬疑小说](/site1347/category110/index.md)
