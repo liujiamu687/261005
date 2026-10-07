@@ -1,0 +1,182 @@
+
+# 泡泡中文书社-无弹窗书友最值得收藏的网络小说阅读网
+
+更新时间：2026-10-05 03:05:30
+
+泡泡中文书社是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.shushe818.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.shushe818.com/book/29bc5pk/
+- 浪漫至死也致死 https://www.shushe818.com/book/29bc5pf/
+- 论人间失格与血鬼术的适配性 https://www.shushe818.com/book/29bc5pb/
+- [综英美]这地图不对劲 https://www.shushe818.com/book/29bc5p7/
+- 他怎么还不提分手？ https://www.shushe818.com/book/29bc5p5/
+- [诡秘之主]历史同人的神秘学用法 https://www.shushe818.com/book/29bc5p4/
+- 全天下都在求太子殿下别死！ https://www.shushe818.com/book/29bc5p2/
+- 穿进女儿国，误娶笨蛋美人 https://www.shushe818.com/book/29bc5p1/
+- 少女暴君在乙游 https://www.shushe818.com/book/29bc5os/
+- 假装Daddy儿子翻车后 https://www.shushe818.com/book/29bc5oq/
+- 华夏卡牌，但亡国之君 https://www.shushe818.com/book/29bc5op/
+- 神棍六十年代再就业 https://www.shushe818.com/book/29bc5om/
+- 陪嫁后被迫成了通房 https://www.shushe818.com/book/29bc5of/
+- 被坏狗盯上了 https://www.shushe818.com/book/29bc5o8/
+- 拒婚后，和联姻对象闪婚了 https://www.shushe818.com/book/29bc5o7/
+- 哥，咱俩天下第一好 https://www.shushe818.com/book/29bc5o6/
+- 致镜汀 https://www.shushe818.com/book/29bc5o5/
+- 一剑捅穿道侣后他变天道了 https://www.shushe818.com/book/29bc5o4/
+- 港城暴发户的败家妻[年代] https://www.shushe818.com/book/29bc5o2/
+- 在运动番当顶级Bking https://www.shushe818.com/book/29bc5nu/
+- 漂亮知青说他是我未来老婆 https://www.shushe818.com/book/29bc5nt/
+- 金光裘 https://www.shushe818.com/book/29bc5ns/
+- 失忆后误把顶流对家当男朋友 https://www.shushe818.com/book/29bc5nr/
+- 今天被邪祟撅了吗？ https://www.shushe818.com/book/29bc5nm/
+- 和乙骨前辈网恋后 https://www.shushe818.com/book/29bc5nh/
+- 胎穿到恶毒反派肚中 https://www.shushe818.com/book/29bc5ng/
+- 黑化超英抽卡中[综英美] https://www.shushe818.com/book/29bc5nf/
+- 龙傲天求我挖他仙骨 https://www.shushe818.com/book/29bc5ne/
+- 穿书九零，老实嫂子要嫁人 https://www.shushe818.com/book/29bc5nd/
+- 戏意 https://www.shushe818.com/book/29bc5nc/
+- 笨蛋美人主动和亲后 https://www.shushe818.com/book/29bc5n9/
+- 男二就是要给龙傲天当老婆的 https://www.shushe818.com/book/29bc5n8/
+- 人鱼种草养毛茸茸 https://www.shushe818.com/book/29bc5n7/
+- 无法攻略的他[娱乐圈] https://www.shushe818.com/book/29bc5n4/
+- [全职高手]我家攻坚撒手没 https://www.shushe818.com/book/29bc5n1/
+- 王妃求子记 https://www.shushe818.com/book/29bc5mt/
+- 禁止勾搭黑化万人迷 https://www.shushe818.com/book/29bc5ms/
+- 心上春 https://www.shushe818.com/book/29bc5mr/
+- 她柔弱不能自理 https://www.shushe818.com/book/29bc5mm/
+- 日向怎么通关忍界 https://www.shushe818.com/book/29bc5mk/
+- 哥哥不是我的吗？[九零] https://www.shushe818.com/book/29bc5mj/
+- 鼬系如何在鸥台生存 https://www.shushe818.com/book/29bc5mh/
+- 谁是真正的猎物？ https://www.shushe818.com/book/29bc5md/
+- 超英都在阻止我黑化[综英美] https://www.shushe818.com/book/29bc5m6/
+- 谁要给暴君当狗啊？！ https://www.shushe818.com/book/29bc5m2/
+- 我心有憾不可平[历史直播] https://www.shushe818.com/book/29bc5m1/
+- 直播手术，外科天才打脸日常[重生] https://www.shushe818.com/book/29bc5lu/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.shushe818.com/book/29bc5lt/
+- 吉食已到 https://www.shushe818.com/book/29bc5ls/
+- 路人攻今天救风尘了吗［快穿］ https://www.shushe818.com/book/29bc5lm/
+- 重生不入东宫 https://www.shushe818.com/book/29bc5lk/
+- [足球]被儿子队友求婚以后 https://www.shushe818.com/book/29bc5lj/
+- 穿成丫鬟，但绑定游戏面板 https://www.shushe818.com/book/29bc5lh/
+- 谁家女主是野牦牛啊！ https://www.shushe818.com/book/29bc5lf/
+- 黎明协奏曲 https://www.shushe818.com/book/29bc5l9/
+- ［西游］我的饭馆通大唐 https://www.shushe818.com/book/29bc5l8/
+- 养媳欲离 https://www.shushe818.com/book/29bc5l6/
+- 橘子小狗只想打排球 https://www.shushe818.com/book/29bc5l3/
+- 洞房夜，我和夫君一起翻车 https://www.shushe818.com/book/29bc5l2/
+- 老板被我渣了两次？ https://www.shushe818.com/book/29bc5l1/
+- [全职高手]走错片场要怎么办 https://www.shushe818.com/book/29bc5ku/
+- [综]恋与蜘蛛侠 https://www.shushe818.com/book/29bc5kq/
+- 有限制体质的仙尊徒弟 https://www.shushe818.com/book/29bc5km/
+- 真千金她一心向道 https://www.shushe818.com/book/29bc5kk/
+- 在将军府任职男仆侍后 https://www.shushe818.com/book/29bc5ke/
+- 破了剑道魁首的无情道后 https://www.shushe818.com/book/29bc5kc/
+- 妖狐崽崽，但全家普通人 https://www.shushe818.com/book/29bc5k9/
+- 那什么的小蜘蛛 https://www.shushe818.com/book/29bc5k7/
+- 女装网骗到校草怎么办 https://www.shushe818.com/book/29bc5k6/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.shushe818.com/book/29bc5ij/
+- [娱乐圈]学医救不了性冷淡！ https://www.shushe818.com/book/29bc5ia/
+- 宿傩妹妹今天也在艰难求生 https://www.shushe818.com/book/29bc5i7/
+- 这个替嫁让我来！ https://www.shushe818.com/book/29bc5h8/
+- 清穿女回来后[天幕] https://www.shushe818.com/book/29bc5g3/
+- 从1951开始 https://www.shushe818.com/book/29bc5fg/
+- 康熙宠妃日常 https://www.shushe818.com/book/29bc5d0/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.shushe818.com/book/29bbp29/
+- 今天还不可以造反吗？？？ https://www.shushe818.com/book/29bbjgj/
+- 喂，别睡了！ https://www.shushe818.com/book/29bbe2h/
+- 九零重组小家庭 https://www.shushe818.com/book/29bbdst/
+- 我老婆怎么是反派暴君 https://www.shushe818.com/book/29bbd85/
+- [足球]足坛人生模拟器 https://www.shushe818.com/book/29bbcvo/
+- 十二星座请选择你的安全屋 https://www.shushe818.com/book/29bb7e8/
+- 从维多利亚时代开始 https://www.shushe818.com/book/29bavg3/
+- 昭暮 https://www.shushe818.com/book/29batkp/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.shushe818.com/book/29bapln/
+- 星际团宠小人鱼 [赛诗会作品] https://www.shushe818.com/book/29baph2/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.shushe818.com/book/29baim3/
+- 食明 https://www.shushe818.com/book/29bagid/
+- 诡话第一boss [赛诗会作品] https://www.shushe818.com/book/29bad5v/
+- 镇守神州，从万里长城开始 https://www.shushe818.com/book/29ba87k/
+- 禁止限制文主角转职龙傲天 https://www.shushe818.com/book/29ba7ab/
+- [斗罗]你已有取死之道 https://www.shushe818.com/book/29ba48m/
+- 社畜Beta也能被顶A觊觎吗 https://www.shushe818.com/book/29ba3nr/
+- 我真不想当魔头的师妹 https://www.shushe818.com/book/29b9tsf/
+- 青宁升仙录 https://www.shushe818.com/book/29b9oks/
+- 在这个圈子，叫“跟” https://www.shushe818.com/book/29b9ob7/
+- 被鬼怪宠爱的漂亮书生 https://www.shushe818.com/book/29b9huc/
+- 社恐直播鉴宝，但带球跑 https://www.shushe818.com/book/29b9hk7/
+- 在诡异世界扮演神明[快穿] https://www.shushe818.com/book/29b9h45/
+- 韩团绿卡不想忍了 https://www.shushe818.com/book/29b9d4a/
+- 获得七个彩虹共感娃娃 https://www.shushe818.com/book/29b96p8/
+- 被迫臣服冰山顶级大小姐O https://www.shushe818.com/book/29b94j3/
+- 木叶RPG，恋爱系物语 https://www.shushe818.com/book/29b948m/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.shushe818.com/book/29b93r6/
+- 耀眼的他 https://www.shushe818.com/book/29b92k9/
+- 死遁后成了忍界白月光？ https://www.shushe818.com/book/29b91iq/
+- 哥你不能不要我 https://www.shushe818.com/book/29b905u/
+- 过气男团ACE重生后 https://www.shushe818.com/book/29b8vdl/
+- 被小蜘蛛听见心声后 https://www.shushe818.com/book/29b8ujl/
+- 言不由衷 https://www.shushe818.com/book/29b8tnu/
+- 这谁的沙雕二次元心声！ https://www.shushe818.com/book/29b8t9j/
+- 卷王后妈，八零养娃 https://www.shushe818.com/book/29b8t5f/
+- 满级大佬成为养成系[娱乐圈] https://www.shushe818.com/book/29b8s7d/
+- 始乱终弃清冷公子后 https://www.shushe818.com/book/29b8rgk/
+- 重力系杀手误入忍界记实录 https://www.shushe818.com/book/29b8r7v/
+- 将妹妹嫁给别人后 https://www.shushe818.com/book/29b8nrl/
+- 穿书留子，在线苟命 https://www.shushe818.com/book/29b8ne1/
+- 偷香窃玉 https://www.shushe818.com/book/29b8n68/
+- 一枝枝怨 https://www.shushe818.com/book/29b8jl4/
+- 幸村女友，但赛博除妖师 https://www.shushe818.com/book/29b8f12/
+- 女巫异世界打工指南[西幻] https://www.shushe818.com/book/29b8ego/
+- 标记母亲的前妻O后 https://www.shushe818.com/book/29b89nk/
+- 人气反派的马甲演绎实录 https://www.shushe818.com/book/29b88sd/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.shushe818.com/book/29b86bt/
+- 荒山安居日常 https://www.shushe818.com/book/29b86b6/
+- 全民求生里不是这样的！ https://www.shushe818.com/book/29b83eo/
+- 道长，收收神通吧 https://www.shushe818.com/book/29b81n6/
+- 异界求生从马甲开始 https://www.shushe818.com/book/29b819u/
+- 欢迎光临，万世极乐 https://www.shushe818.com/book/29b7sr7/
+- 春山慢 https://www.shushe818.com/book/29b7ng5/
+- 我家民宿，古人抢着上班 https://www.shushe818.com/book/29b7mc2/
+- 全民求生：我在森林里当初级魔法师 https://www.shushe818.com/book/29b7jp7/
+- 渴肤症总裁的秘密情人 https://www.shushe818.com/book/29b7jie/
+- 非人马甲与日俱增[升维] https://www.shushe818.com/book/29b7j5l/
+- 老子顶A，凭什么当皇妃！ https://www.shushe818.com/book/29b7iso/
+- 漂亮病弱直男缠药封建大爹 https://www.shushe818.com/book/29b7i3v/
+- 星海世界生存指南[无限] https://www.shushe818.com/book/29b7feb/
+- 悬刃之下 https://www.shushe818.com/book/29b7f6g/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shushe818.com/book/29b6kei/
+- 日化人生[科研] https://www.shushe818.com/book/29b6kcf/
+- 大瑛弟国 https://www.shushe818.com/book/29b6kak/
+- 反派白月光不按剧情死[快穿] https://www.shushe818.com/book/29b6k9h/
+- 天幕今天也在直播我搞基建 https://www.shushe818.com/book/29b6jn8/
+- 魔物堆里的人类幼崽 https://www.shushe818.com/book/29b6jb6/
+- 她是反派的背景板母亲 https://www.shushe818.com/book/29b6jac/
+- 全民求生:从小木屋到魔法农场 https://www.shushe818.com/book/29b6j1v/
+- 巨物致富：回乡开钓场 https://www.shushe818.com/book/29b6irb/
+- [娱乐圈]过分美丽的她 https://www.shushe818.com/book/29b6ii6/
+- 我有一座安全城 [赛诗会作品] https://www.shushe818.com/book/29b6idf/
+- 我是唯一地上神国 [赛诗会作品] https://www.shushe818.com/book/29b6iah/
+- 五十年代港城日常 https://www.shushe818.com/book/29b6htc/
+- 清澈女大的六零年代 https://www.shushe818.com/book/29b6hrd/
+- 海岛求生：生活玩家种田囤货 https://www.shushe818.com/book/29b6hr7/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1373/index.md)
+- [最新热点小说](/site1373/newhot.md)
+- [人气小说](/site1373/b111.md)
+- [推荐小说](/site1373/recommend1.md)
+- [推荐小说列表](/site1373/recommend/index.md)
+- [热点小说](/site1373/hot/index.md)
+- [全本小说](/site1373/quanben/index.md)
+- [网站地图](/site1373/sitemap/index.md)
+- [标签](/site1373/tag/index.md)
+- [爱情小说](/site1373/category101/index.md)
+- [武侠小说](/site1373/category102/index.md)
+- [奇幻小说](/site1373/category103/index.md)
+- [仙侠小说](/site1373/category104/index.md)
+- [游戏小说](/site1373/category105/index.md)
+- [传奇小说](/site1373/category106/index.md)
+- [科幻小说](/site1373/category107/index.md)
+- [惊悚小说](/site1373/category109/index.md)
+- [悬疑小说](/site1373/category110/index.md)

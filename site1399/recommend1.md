@@ -1,0 +1,182 @@
+
+# 佚名奇书小说 - 免费更新的小说阅读网站
+
+更新时间：2026-10-05 03:06:54
+
+佚名奇书小说提供全网各类热门小说在线阅读服务，支持免费观看。这里汇集了丰富的小说资源，包括但不限于都市、玄幻、武侠等多种类型，并且保证章节更新及时，页面设计清爽无广告干扰，是广大书友不可多得的好去处。 https://www.yimingeduai.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.yimingeduai.com/book/6adnq4k/
+- 超英都在阻止我黑化[综英美] https://www.yimingeduai.com/book/6adnq4g/
+- 陪嫁后被迫成了通房 https://www.yimingeduai.com/book/6adnq4f/
+- 全天下都在求太子殿下别死！ https://www.yimingeduai.com/book/6adnq4e/
+- 漂亮知青说他是我未来老婆 https://www.yimingeduai.com/book/6adnq4d/
+- 哥哥不是我的吗？[九零] https://www.yimingeduai.com/book/6adnq48/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.yimingeduai.com/book/6adnq46/
+- 龙傲天求我挖他仙骨 https://www.yimingeduai.com/book/6adnq44/
+- 一剑捅穿道侣后他变天道了 https://www.yimingeduai.com/book/6adnq43/
+- [诡秘之主]历史同人的神秘学用法 https://www.yimingeduai.com/book/6adnq42/
+- 谁要给暴君当狗啊？！ https://www.yimingeduai.com/book/6adnq3p/
+- 禁止勾搭黑化万人迷 https://www.yimingeduai.com/book/6adnq3n/
+- 黎明协奏曲 https://www.yimingeduai.com/book/6adnq3m/
+- 被坏狗盯上了 https://www.yimingeduai.com/book/6adnq3h/
+- 老板被我渣了两次？ https://www.yimingeduai.com/book/6adnq3e/
+- 少女暴君在乙游 https://www.yimingeduai.com/book/6adnq3c/
+- 戏意 https://www.yimingeduai.com/book/6adnq34/
+- 失忆后误把顶流对家当男朋友 https://www.yimingeduai.com/book/6adnq33/
+- [全职高手]我家攻坚撒手没 https://www.yimingeduai.com/book/6adnq32/
+- 心上春 https://www.yimingeduai.com/book/6adnq30/
+- 他怎么还不提分手？ https://www.yimingeduai.com/book/6adnq2p/
+- [足球]被儿子队友求婚以后 https://www.yimingeduai.com/book/6adnq2o/
+- 浪漫至死也致死 https://www.yimingeduai.com/book/6adnq2m/
+- 王妃求子记 https://www.yimingeduai.com/book/6adnq2i/
+- 重生不入东宫 https://www.yimingeduai.com/book/6adnq2c/
+- 女装网骗到校草怎么办 https://www.yimingeduai.com/book/6adnq2b/
+- 哥，咱俩天下第一好 https://www.yimingeduai.com/book/6adnq29/
+- 谁是真正的猎物？ https://www.yimingeduai.com/book/6adnq26/
+- 假装Daddy儿子翻车后 https://www.yimingeduai.com/book/6adnq21/
+- 和乙骨前辈网恋后 https://www.yimingeduai.com/book/6adnq1u/
+- 这个替嫁让我来！ https://www.yimingeduai.com/book/6adnq1q/
+- 无法攻略的他[娱乐圈] https://www.yimingeduai.com/book/6adnq1l/
+- 她柔弱不能自理 https://www.yimingeduai.com/book/6adnq1h/
+- [综]恋与蜘蛛侠 https://www.yimingeduai.com/book/6adnq1g/
+- 有限制体质的仙尊徒弟 https://www.yimingeduai.com/book/6adnq1c/
+- 那什么的小蜘蛛 https://www.yimingeduai.com/book/6adnq17/
+- 直播手术，外科天才打脸日常[重生] https://www.yimingeduai.com/book/6adnq16/
+- 男二就是要给龙傲天当老婆的 https://www.yimingeduai.com/book/6adnq13/
+- 鼬系如何在鸥台生存 https://www.yimingeduai.com/book/6adnq12/
+- 穿成丫鬟，但绑定游戏面板 https://www.yimingeduai.com/book/6adnq10/
+- 华夏卡牌，但亡国之君 https://www.yimingeduai.com/book/6adnq0u/
+- 妖狐崽崽，但全家普通人 https://www.yimingeduai.com/book/6adnq0t/
+- 穿书九零，老实嫂子要嫁人 https://www.yimingeduai.com/book/6adnq0r/
+- ［西游］我的饭馆通大唐 https://www.yimingeduai.com/book/6adnq0q/
+- 胎穿到恶毒反派肚中 https://www.yimingeduai.com/book/6adnq0p/
+- 今天被邪祟撅了吗？ https://www.yimingeduai.com/book/6adnq0n/
+- 在将军府任职男仆侍后 https://www.yimingeduai.com/book/6adnq0m/
+- 神棍六十年代再就业 https://www.yimingeduai.com/book/6adnq0k/
+- 黑化超英抽卡中[综英美] https://www.yimingeduai.com/book/6adnq0j/
+- [全职高手]走错片场要怎么办 https://www.yimingeduai.com/book/6adnq0h/
+- 真千金她一心向道 https://www.yimingeduai.com/book/6adnq0g/
+- 日向怎么通关忍界 https://www.yimingeduai.com/book/6adnq0c/
+- 港城暴发户的败家妻[年代] https://www.yimingeduai.com/book/6adnq0a/
+- 橘子小狗只想打排球 https://www.yimingeduai.com/book/6adnq08/
+- 论人间失格与血鬼术的适配性 https://www.yimingeduai.com/book/6adnq07/
+- 吉食已到 https://www.yimingeduai.com/book/6adnq06/
+- 养媳欲离 https://www.yimingeduai.com/book/6adnq05/
+- 路人攻今天救风尘了吗［快穿］ https://www.yimingeduai.com/book/6adnq04/
+- 我心有憾不可平[历史直播] https://www.yimingeduai.com/book/6adnq02/
+- 谁家女主是野牦牛啊！ https://www.yimingeduai.com/book/6adnq00/
+- 致镜汀 https://www.yimingeduai.com/book/6adnpvr/
+- 洞房夜，我和夫君一起翻车 https://www.yimingeduai.com/book/6adnpvq/
+- 金光裘 https://www.yimingeduai.com/book/6adnpvm/
+- [综英美]这地图不对劲 https://www.yimingeduai.com/book/6adnpvl/
+- 笨蛋美人主动和亲后 https://www.yimingeduai.com/book/6adnpvj/
+- 拒婚后，和联姻对象闪婚了 https://www.yimingeduai.com/book/6adnpvi/
+- 人鱼种草养毛茸茸 https://www.yimingeduai.com/book/6adnpvc/
+- 破了剑道魁首的无情道后 https://www.yimingeduai.com/book/6adnpv6/
+- [娱乐圈]学医救不了性冷淡！ https://www.yimingeduai.com/book/6adnptg/
+- 宿傩妹妹今天也在艰难求生 https://www.yimingeduai.com/book/6adnprt/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.yimingeduai.com/book/6adnpr1/
+- 从1951开始 https://www.yimingeduai.com/book/6adng45/
+- 康熙宠妃日常 https://www.yimingeduai.com/book/6adng43/
+- 清穿女回来后[天幕] https://www.yimingeduai.com/book/6adng1g/
+- 今天还不可以造反吗？？？ https://www.yimingeduai.com/book/6adnfa8/
+- 喂，别睡了！ https://www.yimingeduai.com/book/6adnbjh/
+- [足球]足坛人生模拟器 https://www.yimingeduai.com/book/6adnbcs/
+- 我老婆怎么是反派暴君 https://www.yimingeduai.com/book/6adn89k/
+- 九零重组小家庭 https://www.yimingeduai.com/book/6adn1kr/
+- 从维多利亚时代开始 https://www.yimingeduai.com/book/6adn07r/
+- 昭暮 https://www.yimingeduai.com/book/6admrqp/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.yimingeduai.com/book/6admlri/
+- 食明 https://www.yimingeduai.com/book/6admhhb/
+- 诡话第一boss [赛诗会作品] https://www.yimingeduai.com/book/6admefl/
+- 一枝枝怨 https://www.yimingeduai.com/book/6adm9td/
+- 重力系杀手误入忍界记实录 https://www.yimingeduai.com/book/6adm963/
+- 过气男团ACE重生后 https://www.yimingeduai.com/book/6adm14a/
+- 哥你不能不要我 https://www.yimingeduai.com/book/6adm115/
+- 青宁升仙录 https://www.yimingeduai.com/book/6adls9j/
+- 反派白月光不按剧情死[快穿] https://www.yimingeduai.com/book/6adlqf7/
+- 韩团绿卡不想忍了 https://www.yimingeduai.com/book/6adlgoi/
+- 被鬼怪宠爱的漂亮书生 https://www.yimingeduai.com/book/6adlb72/
+- 在这个圈子，叫“跟” https://www.yimingeduai.com/book/6adlasa/
+- 满级大佬成为养成系[娱乐圈] https://www.yimingeduai.com/book/6adla5j/
+- 欢迎光临，万世极乐 https://www.yimingeduai.com/book/6adl8g6/
+- 偷香窃玉 https://www.yimingeduai.com/book/6adkvuv/
+- 魔物堆里的人类幼崽 https://www.yimingeduai.com/book/6adkvq1/
+- 将妹妹嫁给别人后 https://www.yimingeduai.com/book/6adkvng/
+- 幸村女友，但赛博除妖师 https://www.yimingeduai.com/book/6adks8h/
+- 言不由衷 https://www.yimingeduai.com/book/6adkr5s/
+- 耀眼的他 https://www.yimingeduai.com/book/6adkqj0/
+- 镇守神州，从万里长城开始 https://www.yimingeduai.com/book/6adkpcv/
+- 我真不想当魔头的师妹 https://www.yimingeduai.com/book/6adkpck/
+- [斗罗]你已有取死之道 https://www.yimingeduai.com/book/6adkoqk/
+- 被迫臣服冰山顶级大小姐O https://www.yimingeduai.com/book/6adkl63/
+- 这谁的沙雕二次元心声！ https://www.yimingeduai.com/book/6adkjll/
+- 女巫异世界打工指南[西幻] https://www.yimingeduai.com/book/6adkhvs/
+- 道长，收收神通吧 https://www.yimingeduai.com/book/6adkhur/
+- 标记母亲的前妻O后 https://www.yimingeduai.com/book/6adkclr/
+- 穿书留子，在线苟命 https://www.yimingeduai.com/book/6adk8uq/
+- 被小蜘蛛听见心声后 https://www.yimingeduai.com/book/6adk4iu/
+- 天幕今天也在直播我搞基建 https://www.yimingeduai.com/book/6adk1a5/
+- 社恐直播鉴宝，但带球跑 https://www.yimingeduai.com/book/6adk187/
+- 在诡异世界扮演神明[快穿] https://www.yimingeduai.com/book/6adk0jb/
+- 穿进女儿国，误娶笨蛋美人 https://www.yimingeduai.com/book/6adju76/
+- 十二星座请选择你的安全屋 https://www.yimingeduai.com/book/6adjssv/
+- 死遁后成了忍界白月光？ https://www.yimingeduai.com/book/6adjrap/
+- 始乱终弃清冷公子后 https://www.yimingeduai.com/book/6adjp40/
+- 社畜Beta也能被顶A觊觎吗 https://www.yimingeduai.com/book/6adjlm1/
+- 异界求生从马甲开始 https://www.yimingeduai.com/book/6adjlgg/
+- 荒山安居日常 https://www.yimingeduai.com/book/6adjk8b/
+- 获得七个彩虹共感娃娃 https://www.yimingeduai.com/book/6adjjdf/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.yimingeduai.com/book/6adjg57/
+- 全民求生里不是这样的！ https://www.yimingeduai.com/book/6adjdcp/
+- 全民求生：我在森林里当初级魔法师 https://www.yimingeduai.com/book/6adjdaa/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.yimingeduai.com/book/6adjcac/
+- 渴肤症总裁的秘密情人 https://www.yimingeduai.com/book/6adjbt5/
+- 非人马甲与日俱增[升维] https://www.yimingeduai.com/book/6adjbf3/
+- 我家民宿，古人抢着上班 https://www.yimingeduai.com/book/6adj9v7/
+- 春山慢 https://www.yimingeduai.com/book/6adj933/
+- 漂亮病弱直男缠药封建大爹 https://www.yimingeduai.com/book/6adj8e5/
+- 悬刃之下 https://www.yimingeduai.com/book/6adj7ru/
+- 老子顶A，凭什么当皇妃！ https://www.yimingeduai.com/book/6adj7kk/
+- 在运动番当顶级Bking https://www.yimingeduai.com/book/6adj5t3/
+- 星海世界生存指南[无限] https://www.yimingeduai.com/book/6adj3qd/
+- 全民求生:从小木屋到魔法农场 https://www.yimingeduai.com/book/6adi8o2/
+- 人气反派的马甲演绎实录 https://www.yimingeduai.com/book/6adi8jv/
+- 卷王后妈，八零养娃 https://www.yimingeduai.com/book/6adi8jp/
+- 海岛求生：生活玩家种田囤货 https://www.yimingeduai.com/book/6adi8em/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.yimingeduai.com/book/6adi853/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.yimingeduai.com/book/6adi811/
+- 她是反派的背景板母亲 https://www.yimingeduai.com/book/6adi7sh/
+- 巨物致富：回乡开钓场 https://www.yimingeduai.com/book/6adi7il/
+- 清澈女大的六零年代 https://www.yimingeduai.com/book/6adi7ap/
+- 木叶RPG，恋爱系物语 https://www.yimingeduai.com/book/6adi775/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.yimingeduai.com/book/6adi75l/
+- 星际团宠小人鱼 [赛诗会作品] https://www.yimingeduai.com/book/6adi74q/
+- [娱乐圈]过分美丽的她 https://www.yimingeduai.com/book/6adi742/
+- 我是唯一地上神国 [赛诗会作品] https://www.yimingeduai.com/book/6adi70r/
+- 五十年代港城日常 https://www.yimingeduai.com/book/6adi6nm/
+- 我有一座安全城 [赛诗会作品] https://www.yimingeduai.com/book/6adi6ln/
+- 日化人生[科研] https://www.yimingeduai.com/book/6adi6g6/
+- 大瑛弟国 https://www.yimingeduai.com/book/6adi6bh/
+- 禁止限制文主角转职龙傲天 https://www.yimingeduai.com/book/6adi66n/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1399/index.md)
+- [最新热点小说](/site1399/newhot.md)
+- [人气小说](/site1399/b111.md)
+- [推荐小说](/site1399/recommend1.md)
+- [推荐小说列表](/site1399/recommend/index.md)
+- [热点小说](/site1399/hot/index.md)
+- [全本小说](/site1399/quanben/index.md)
+- [网站地图](/site1399/sitemap/index.md)
+- [标签](/site1399/tag/index.md)
+- [爱情小说](/site1399/category101/index.md)
+- [武侠小说](/site1399/category102/index.md)
+- [奇幻小说](/site1399/category103/index.md)
+- [仙侠小说](/site1399/category104/index.md)
+- [游戏小说](/site1399/category105/index.md)
+- [传奇小说](/site1399/category106/index.md)
+- [科幻小说](/site1399/category107/index.md)
+- [惊悚小说](/site1399/category109/index.md)
+- [悬疑小说](/site1399/category110/index.md)
