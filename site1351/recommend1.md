@@ -1,0 +1,182 @@
+
+# 泡泡中文小说-无弹窗书友最值得收藏的网络小说阅读网
+
+更新时间：2026-10-05 03:06:40
+
+泡泡中文小说是广大书友最值得收藏的网络小说阅读网，网站收录了当前最火热的网络小说，免费提供高质量的小说最新章节，是广大网络小说爱好者必备的小说阅读网。 https://www.xiaoshuo288.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.xiaoshuo288.com/book/dm3vle/
+- 穿成丫鬟，但绑定游戏面板 https://www.xiaoshuo288.com/book/dm3vld/
+- 穿进女儿国，误娶笨蛋美人 https://www.xiaoshuo288.com/book/dm3vlc/
+- 浪漫至死也致死 https://www.xiaoshuo288.com/book/dm3vl4/
+- [足球]被儿子队友求婚以后 https://www.xiaoshuo288.com/book/dm3vl2/
+- 禁止勾搭黑化万人迷 https://www.xiaoshuo288.com/book/dm3vkv/
+- 他怎么还不提分手？ https://www.xiaoshuo288.com/book/dm3vkt/
+- 今天被邪祟撅了吗？ https://www.xiaoshuo288.com/book/dm3vkp/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.xiaoshuo288.com/book/dm3vkl/
+- 谁要给暴君当狗啊？！ https://www.xiaoshuo288.com/book/dm3vkj/
+- 假装Daddy儿子翻车后 https://www.xiaoshuo288.com/book/dm3vkh/
+- 老板被我渣了两次？ https://www.xiaoshuo288.com/book/dm3vka/
+- 女装网骗到校草怎么办 https://www.xiaoshuo288.com/book/dm3vk9/
+- 胎穿到恶毒反派肚中 https://www.xiaoshuo288.com/book/dm3vk7/
+- 王妃求子记 https://www.xiaoshuo288.com/book/dm3vk5/
+- 谁是真正的猎物？ https://www.xiaoshuo288.com/book/dm3vk4/
+- 鼬系如何在鸥台生存 https://www.xiaoshuo288.com/book/dm3vk3/
+- 哥，咱俩天下第一好 https://www.xiaoshuo288.com/book/dm3vjv/
+- 一剑捅穿道侣后他变天道了 https://www.xiaoshuo288.com/book/dm3vjp/
+- 妖狐崽崽，但全家普通人 https://www.xiaoshuo288.com/book/dm3vjl/
+- 神棍六十年代再就业 https://www.xiaoshuo288.com/book/dm3vjk/
+- 拒婚后，和联姻对象闪婚了 https://www.xiaoshuo288.com/book/dm3vji/
+- 黑化超英抽卡中[综英美] https://www.xiaoshuo288.com/book/dm3vjf/
+- 被坏狗盯上了 https://www.xiaoshuo288.com/book/dm3vje/
+- 吉食已到 https://www.xiaoshuo288.com/book/dm3vjd/
+- ［西游］我的饭馆通大唐 https://www.xiaoshuo288.com/book/dm3vjc/
+- 谁家女主是野牦牛啊！ https://www.xiaoshuo288.com/book/dm3vjb/
+- 和乙骨前辈网恋后 https://www.xiaoshuo288.com/book/dm3vja/
+- 在运动番当顶级Bking https://www.xiaoshuo288.com/book/dm3vj7/
+- 失忆后误把顶流对家当男朋友 https://www.xiaoshuo288.com/book/dm3vj6/
+- 我心有憾不可平[历史直播] https://www.xiaoshuo288.com/book/dm3vj4/
+- 养媳欲离 https://www.xiaoshuo288.com/book/dm3vj1/
+- 真千金她一心向道 https://www.xiaoshuo288.com/book/dm3vit/
+- 路人攻今天救风尘了吗［快穿］ https://www.xiaoshuo288.com/book/dm3vis/
+- 哥哥不是我的吗？[九零] https://www.xiaoshuo288.com/book/dm3vir/
+- 穿书九零，老实嫂子要嫁人 https://www.xiaoshuo288.com/book/dm3vip/
+- 华夏卡牌，但亡国之君 https://www.xiaoshuo288.com/book/dm3vin/
+- 有限制体质的仙尊徒弟 https://www.xiaoshuo288.com/book/dm3vii/
+- 日向怎么通关忍界 https://www.xiaoshuo288.com/book/dm3vie/
+- 那什么的小蜘蛛 https://www.xiaoshuo288.com/book/dm3vic/
+- 黎明协奏曲 https://www.xiaoshuo288.com/book/dm3vib/
+- 致镜汀 https://www.xiaoshuo288.com/book/dm3via/
+- 论人间失格与血鬼术的适配性 https://www.xiaoshuo288.com/book/dm3vi9/
+- 直播手术，外科天才打脸日常[重生] https://www.xiaoshuo288.com/book/dm3vi8/
+- [综英美]这地图不对劲 https://www.xiaoshuo288.com/book/dm3vi7/
+- 超英都在阻止我黑化[综英美] https://www.xiaoshuo288.com/book/dm3vi6/
+- 在将军府任职男仆侍后 https://www.xiaoshuo288.com/book/dm3vi4/
+- 人鱼种草养毛茸茸 https://www.xiaoshuo288.com/book/dm3vi2/
+- [全职高手]走错片场要怎么办 https://www.xiaoshuo288.com/book/dm3vi0/
+- 男二就是要给龙傲天当老婆的 https://www.xiaoshuo288.com/book/dm3vhm/
+- 笨蛋美人主动和亲后 https://www.xiaoshuo288.com/book/dm3vhh/
+- 无法攻略的他[娱乐圈] https://www.xiaoshuo288.com/book/dm3vhg/
+- 少女暴君在乙游 https://www.xiaoshuo288.com/book/dm3vhf/
+- 重生不入东宫 https://www.xiaoshuo288.com/book/dm3vhe/
+- 全天下都在求太子殿下别死！ https://www.xiaoshuo288.com/book/dm3vhb/
+- 龙傲天求我挖他仙骨 https://www.xiaoshuo288.com/book/dm3vh9/
+- 陪嫁后被迫成了通房 https://www.xiaoshuo288.com/book/dm3vh3/
+- 橘子小狗只想打排球 https://www.xiaoshuo288.com/book/dm3vh1/
+- 港城暴发户的败家妻[年代] https://www.xiaoshuo288.com/book/dm3vgs/
+- [诡秘之主]历史同人的神秘学用法 https://www.xiaoshuo288.com/book/dm3vgp/
+- 漂亮知青说他是我未来老婆 https://www.xiaoshuo288.com/book/dm3vgn/
+- 金光裘 https://www.xiaoshuo288.com/book/dm3vgm/
+- 戏意 https://www.xiaoshuo288.com/book/dm3vgj/
+- 洞房夜，我和夫君一起翻车 https://www.xiaoshuo288.com/book/dm3vgh/
+- [综]恋与蜘蛛侠 https://www.xiaoshuo288.com/book/dm3vgf/
+- 破了剑道魁首的无情道后 https://www.xiaoshuo288.com/book/dm3vge/
+- [全职高手]我家攻坚撒手没 https://www.xiaoshuo288.com/book/dm3vg7/
+- 她柔弱不能自理 https://www.xiaoshuo288.com/book/dm3vg6/
+- 心上春 https://www.xiaoshuo288.com/book/dm3vg2/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.xiaoshuo288.com/book/dm3vf7/
+- [娱乐圈]学医救不了性冷淡！ https://www.xiaoshuo288.com/book/dm3vel/
+- 宿傩妹妹今天也在艰难求生 https://www.xiaoshuo288.com/book/dm3vei/
+- 清穿女回来后[天幕] https://www.xiaoshuo288.com/book/dm3vch/
+- 康熙宠妃日常 https://www.xiaoshuo288.com/book/dm3vbl/
+- 这个替嫁让我来！ https://www.xiaoshuo288.com/book/dm3vbb/
+- 从1951开始 https://www.xiaoshuo288.com/book/dm3v9o/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.xiaoshuo288.com/book/dm3j65/
+- 今天还不可以造反吗？？？ https://www.xiaoshuo288.com/book/dm3dkb/
+- 喂，别睡了！ https://www.xiaoshuo288.com/book/dm37uk/
+- 九零重组小家庭 https://www.xiaoshuo288.com/book/dm37lf/
+- 我老婆怎么是反派暴君 https://www.xiaoshuo288.com/book/dm37aq/
+- [足球]足坛人生模拟器 https://www.xiaoshuo288.com/book/dm36ra/
+- 十二星座请选择你的安全屋 https://www.xiaoshuo288.com/book/dm329i/
+- 从维多利亚时代开始 https://www.xiaoshuo288.com/book/dm2p9s/
+- 昭暮 https://www.xiaoshuo288.com/book/dm2nph/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.xiaoshuo288.com/book/dm2kij/
+- 星际团宠小人鱼 [赛诗会作品] https://www.xiaoshuo288.com/book/dm2k9m/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.xiaoshuo288.com/book/dm2dan/
+- 食明 https://www.xiaoshuo288.com/book/dm2af1/
+- 诡话第一boss [赛诗会作品] https://www.xiaoshuo288.com/book/dm278n/
+- 禁止限制文主角转职龙傲天 https://www.xiaoshuo288.com/book/dm20pg/
+- 镇守神州，从万里长城开始 https://www.xiaoshuo288.com/book/dm20p0/
+- [斗罗]你已有取死之道 https://www.xiaoshuo288.com/book/dm1tu4/
+- 社畜Beta也能被顶A觊觎吗 https://www.xiaoshuo288.com/book/dm1tkn/
+- 我真不想当魔头的师妹 https://www.xiaoshuo288.com/book/dm1l86/
+- 青宁升仙录 https://www.xiaoshuo288.com/book/dm1j4n/
+- 在这个圈子，叫“跟” https://www.xiaoshuo288.com/book/dm1i3h/
+- 被鬼怪宠爱的漂亮书生 https://www.xiaoshuo288.com/book/dm1bro/
+- 社恐直播鉴宝，但带球跑 https://www.xiaoshuo288.com/book/dm1bap/
+- 在诡异世界扮演神明[快穿] https://www.xiaoshuo288.com/book/dm1adp/
+- 获得七个彩虹共感娃娃 https://www.xiaoshuo288.com/book/dm120u/
+- 韩团绿卡不想忍了 https://www.xiaoshuo288.com/book/dm112c/
+- 木叶RPG，恋爱系物语 https://www.xiaoshuo288.com/book/dm0uvu/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.xiaoshuo288.com/book/dm0uhc/
+- 被迫臣服冰山顶级大小姐O https://www.xiaoshuo288.com/book/dm0u0g/
+- 耀眼的他 https://www.xiaoshuo288.com/book/dm0re2/
+- 死遁后成了忍界白月光？ https://www.xiaoshuo288.com/book/dm0qts/
+- 哥你不能不要我 https://www.xiaoshuo288.com/book/dm0pp3/
+- 过气男团ACE重生后 https://www.xiaoshuo288.com/book/dm0p8t/
+- 言不由衷 https://www.xiaoshuo288.com/book/dm0oke/
+- 被小蜘蛛听见心声后 https://www.xiaoshuo288.com/book/dm0o6s/
+- 这谁的沙雕二次元心声！ https://www.xiaoshuo288.com/book/dm0ni5/
+- 重力系杀手误入忍界记实录 https://www.xiaoshuo288.com/book/dm0n1c/
+- 始乱终弃清冷公子后 https://www.xiaoshuo288.com/book/dm0mqf/
+- 满级大佬成为养成系[娱乐圈] https://www.xiaoshuo288.com/book/dm0mhb/
+- 卷王后妈，八零养娃 https://www.xiaoshuo288.com/book/dm0ls5/
+- 将妹妹嫁给别人后 https://www.xiaoshuo288.com/book/dm0ip1/
+- 偷香窃玉 https://www.xiaoshuo288.com/book/dm0hfm/
+- 穿书留子，在线苟命 https://www.xiaoshuo288.com/book/dm0gad/
+- 一枝枝怨 https://www.xiaoshuo288.com/book/dm0e4r/
+- 女巫异世界打工指南[西幻] https://www.xiaoshuo288.com/book/dm07rd/
+- 幸村女友，但赛博除妖师 https://www.xiaoshuo288.com/book/dm07cq/
+- 标记母亲的前妻O后 https://www.xiaoshuo288.com/book/dm04n6/
+- 荒山安居日常 https://www.xiaoshuo288.com/book/dm02kp/
+- 人气反派的马甲演绎实录 https://www.xiaoshuo288.com/book/dm014n/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.xiaoshuo288.com/book/dm003e/
+- 全民求生里不是这样的！ https://www.xiaoshuo288.com/book/dm0031/
+- 道长，收收神通吧 https://www.xiaoshuo288.com/book/dlvqvo/
+- 异界求生从马甲开始 https://www.xiaoshuo288.com/book/dlvqa1/
+- 欢迎光临，万世极乐 https://www.xiaoshuo288.com/book/dlvl6q/
+- 我家民宿，古人抢着上班 https://www.xiaoshuo288.com/book/dlvf7s/
+- 春山慢 https://www.xiaoshuo288.com/book/dlvf5q/
+- 老子顶A，凭什么当皇妃！ https://www.xiaoshuo288.com/book/dlvdv8/
+- 漂亮病弱直男缠药封建大爹 https://www.xiaoshuo288.com/book/dlvdti/
+- 渴肤症总裁的秘密情人 https://www.xiaoshuo288.com/book/dlvd8l/
+- 全民求生：我在森林里当初级魔法师 https://www.xiaoshuo288.com/book/dlvd2g/
+- 非人马甲与日俱增[升维] https://www.xiaoshuo288.com/book/dlvbpk/
+- 悬刃之下 https://www.xiaoshuo288.com/book/dlvb6v/
+- 星海世界生存指南[无限] https://www.xiaoshuo288.com/book/dlv9ac/
+- 她是反派的背景板母亲 https://www.xiaoshuo288.com/book/dlue67/
+- 大瑛弟国 https://www.xiaoshuo288.com/book/dludfv/
+- 天幕今天也在直播我搞基建 https://www.xiaoshuo288.com/book/dluct0/
+- 全民求生:从小木屋到魔法农场 https://www.xiaoshuo288.com/book/dlucs6/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.xiaoshuo288.com/book/dlucq9/
+- 五十年代港城日常 https://www.xiaoshuo288.com/book/dlucdh/
+- 魔物堆里的人类幼崽 https://www.xiaoshuo288.com/book/dlucct/
+- 反派白月光不按剧情死[快穿] https://www.xiaoshuo288.com/book/dluc71/
+- 巨物致富：回乡开钓场 https://www.xiaoshuo288.com/book/dlubuf/
+- 清澈女大的六零年代 https://www.xiaoshuo288.com/book/dlubqs/
+- 我是唯一地上神国 [赛诗会作品] https://www.xiaoshuo288.com/book/dlubor/
+- 我有一座安全城 [赛诗会作品] https://www.xiaoshuo288.com/book/dlubdt/
+- 海岛求生：生活玩家种田囤货 https://www.xiaoshuo288.com/book/dlubd5/
+- [娱乐圈]过分美丽的她 https://www.xiaoshuo288.com/book/dlub9h/
+- 日化人生[科研] https://www.xiaoshuo288.com/book/dlub1c/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1351/index.md)
+- [最新热点小说](/site1351/newhot.md)
+- [人气小说](/site1351/b111.md)
+- [推荐小说](/site1351/recommend1.md)
+- [推荐小说列表](/site1351/recommend/index.md)
+- [热点小说](/site1351/hot/index.md)
+- [全本小说](/site1351/quanben/index.md)
+- [网站地图](/site1351/sitemap/index.md)
+- [标签](/site1351/tag/index.md)
+- [爱情小说](/site1351/category101/index.md)
+- [武侠小说](/site1351/category102/index.md)
+- [奇幻小说](/site1351/category103/index.md)
+- [仙侠小说](/site1351/category104/index.md)
+- [游戏小说](/site1351/category105/index.md)
+- [传奇小说](/site1351/category106/index.md)
+- [科幻小说](/site1351/category107/index.md)
+- [惊悚小说](/site1351/category109/index.md)
+- [悬疑小说](/site1351/category110/index.md)
