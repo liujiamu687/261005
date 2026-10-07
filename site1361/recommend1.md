@@ -1,0 +1,182 @@
+
+# 情感小说-精彩小说推荐网,涵盖言情都市历史科幻等多种类型
+
+更新时间：2026-10-05 03:05:04
+
+情感小说致力于为广大书友推荐各种类型好看的小说，包括但不限于言情、都市、历史、科幻、灵异、军事、悬疑、玄幻、武侠、末世等。看小说，找小说就上书格格小说推荐网！ https://www.qinggan1687.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.qinggan1687.com/book/3qc5j46/
+- 和乙骨前辈网恋后 https://www.qinggan1687.com/book/3qc5j45/
+- 金光裘 https://www.qinggan1687.com/book/3qc5j3v/
+- 漂亮知青说他是我未来老婆 https://www.qinggan1687.com/book/3qc5j3s/
+- 鼬系如何在鸥台生存 https://www.qinggan1687.com/book/3qc5j3r/
+- 胎穿到恶毒反派肚中 https://www.qinggan1687.com/book/3qc5j3q/
+- 路人攻今天救风尘了吗［快穿］ https://www.qinggan1687.com/book/3qc5j3p/
+- 笨蛋美人主动和亲后 https://www.qinggan1687.com/book/3qc5j3l/
+- 黎明协奏曲 https://www.qinggan1687.com/book/3qc5j3k/
+- 致镜汀 https://www.qinggan1687.com/book/3qc5j3e/
+- 妖狐崽崽，但全家普通人 https://www.qinggan1687.com/book/3qc5j3d/
+- [综英美]这地图不对劲 https://www.qinggan1687.com/book/3qc5j3b/
+- 一剑捅穿道侣后他变天道了 https://www.qinggan1687.com/book/3qc5j39/
+- 他怎么还不提分手？ https://www.qinggan1687.com/book/3qc5j37/
+- 无法攻略的他[娱乐圈] https://www.qinggan1687.com/book/3qc5j35/
+- 在运动番当顶级Bking https://www.qinggan1687.com/book/3qc5j32/
+- 黑化超英抽卡中[综英美] https://www.qinggan1687.com/book/3qc5j2t/
+- 养媳欲离 https://www.qinggan1687.com/book/3qc5j2q/
+- 人鱼种草养毛茸茸 https://www.qinggan1687.com/book/3qc5j2j/
+- 日向怎么通关忍界 https://www.qinggan1687.com/book/3qc5j2g/
+- 陪嫁后被迫成了通房 https://www.qinggan1687.com/book/3qc5j2c/
+- 被坏狗盯上了 https://www.qinggan1687.com/book/3qc5j2a/
+- 龙傲天求我挖他仙骨 https://www.qinggan1687.com/book/3qc5j29/
+- 华夏卡牌，但亡国之君 https://www.qinggan1687.com/book/3qc5j23/
+- 洞房夜，我和夫君一起翻车 https://www.qinggan1687.com/book/3qc5j22/
+- 超英都在阻止我黑化[综英美] https://www.qinggan1687.com/book/3qc5j1t/
+- [综]恋与蜘蛛侠 https://www.qinggan1687.com/book/3qc5j1s/
+- ［西游］我的饭馆通大唐 https://www.qinggan1687.com/book/3qc5j1q/
+- 在将军府任职男仆侍后 https://www.qinggan1687.com/book/3qc5j1h/
+- [诡秘之主]历史同人的神秘学用法 https://www.qinggan1687.com/book/3qc5j19/
+- 橘子小狗只想打排球 https://www.qinggan1687.com/book/3qc5j18/
+- 穿书九零，老实嫂子要嫁人 https://www.qinggan1687.com/book/3qc5j17/
+- 哥，咱俩天下第一好 https://www.qinggan1687.com/book/3qc5j16/
+- 有限制体质的仙尊徒弟 https://www.qinggan1687.com/book/3qc5j13/
+- 心上春 https://www.qinggan1687.com/book/3qc5j0v/
+- 拒婚后，和联姻对象闪婚了 https://www.qinggan1687.com/book/3qc5j0u/
+- 直播手术，外科天才打脸日常[重生] https://www.qinggan1687.com/book/3qc5j0t/
+- 戏意 https://www.qinggan1687.com/book/3qc5j0o/
+- 失忆后误把顶流对家当男朋友 https://www.qinggan1687.com/book/3qc5j0m/
+- 禁止勾搭黑化万人迷 https://www.qinggan1687.com/book/3qc5j0l/
+- 破了剑道魁首的无情道后 https://www.qinggan1687.com/book/3qc5j0i/
+- 她柔弱不能自理 https://www.qinggan1687.com/book/3qc5j0h/
+- 穿成丫鬟，但绑定游戏面板 https://www.qinggan1687.com/book/3qc5j0b/
+- [全职高手]我家攻坚撒手没 https://www.qinggan1687.com/book/3qc5j08/
+- 吉食已到 https://www.qinggan1687.com/book/3qc5j06/
+- 穿进女儿国，误娶笨蛋美人 https://www.qinggan1687.com/book/3qc5j05/
+- 神棍六十年代再就业 https://www.qinggan1687.com/book/3qc5j04/
+- 我心有憾不可平[历史直播] https://www.qinggan1687.com/book/3qc5j03/
+- 老板被我渣了两次？ https://www.qinggan1687.com/book/3qc5ivv/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.qinggan1687.com/book/3qc5ivu/
+- 哥哥不是我的吗？[九零] https://www.qinggan1687.com/book/3qc5ivs/
+- 港城暴发户的败家妻[年代] https://www.qinggan1687.com/book/3qc5ivp/
+- 论人间失格与血鬼术的适配性 https://www.qinggan1687.com/book/3qc5ivo/
+- 谁家女主是野牦牛啊！ https://www.qinggan1687.com/book/3qc5ivn/
+- [足球]被儿子队友求婚以后 https://www.qinggan1687.com/book/3qc5ivm/
+- 真千金她一心向道 https://www.qinggan1687.com/book/3qc5ivk/
+- 重生不入东宫 https://www.qinggan1687.com/book/3qc5ivg/
+- 谁要给暴君当狗啊？！ https://www.qinggan1687.com/book/3qc5ivf/
+- 少女暴君在乙游 https://www.qinggan1687.com/book/3qc5ive/
+- 浪漫至死也致死 https://www.qinggan1687.com/book/3qc5ivc/
+- 今天被邪祟撅了吗？ https://www.qinggan1687.com/book/3qc5iv9/
+- 全天下都在求太子殿下别死！ https://www.qinggan1687.com/book/3qc5iv8/
+- 谁是真正的猎物？ https://www.qinggan1687.com/book/3qc5iv6/
+- 假装Daddy儿子翻车后 https://www.qinggan1687.com/book/3qc5iv5/
+- 男二就是要给龙傲天当老婆的 https://www.qinggan1687.com/book/3qc5iv1/
+- 女装网骗到校草怎么办 https://www.qinggan1687.com/book/3qc5iuv/
+- 那什么的小蜘蛛 https://www.qinggan1687.com/book/3qc5iut/
+- 王妃求子记 https://www.qinggan1687.com/book/3qc5iur/
+- [全职高手]走错片场要怎么办 https://www.qinggan1687.com/book/3qc5iun/
+- 宿傩妹妹今天也在艰难求生 https://www.qinggan1687.com/book/3qc5iu3/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.qinggan1687.com/book/3qc5ith/
+- [娱乐圈]学医救不了性冷淡！ https://www.qinggan1687.com/book/3qc5isb/
+- 康熙宠妃日常 https://www.qinggan1687.com/book/3qc5ipv/
+- 清穿女回来后[天幕] https://www.qinggan1687.com/book/3qc5ip8/
+- 从1951开始 https://www.qinggan1687.com/book/3qc5inv/
+- 这个替嫁让我来！ https://www.qinggan1687.com/book/3qc5in3/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.qinggan1687.com/book/3qc56ab/
+- 今天还不可以造反吗？？？ https://www.qinggan1687.com/book/3qc50rf/
+- 喂，别睡了！ https://www.qinggan1687.com/book/3qc4rbi/
+- 九零重组小家庭 https://www.qinggan1687.com/book/3qc4r5n/
+- 我老婆怎么是反派暴君 https://www.qinggan1687.com/book/3qc4qmi/
+- [足球]足坛人生模拟器 https://www.qinggan1687.com/book/3qc4q7l/
+- 十二星座请选择你的安全屋 https://www.qinggan1687.com/book/3qc4kpi/
+- 从维多利亚时代开始 https://www.qinggan1687.com/book/3qc4cp5/
+- 昭暮 https://www.qinggan1687.com/book/3qc4ars/
+- 星际团宠小人鱼 [赛诗会作品] https://www.qinggan1687.com/book/3qc474b/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.qinggan1687.com/book/3qc46vg/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.qinggan1687.com/book/3qc401u/
+- 食明 https://www.qinggan1687.com/book/3qc3to0/
+- 诡话第一boss [赛诗会作品] https://www.qinggan1687.com/book/3qc3qk4/
+- 禁止限制文主角转职龙傲天 https://www.qinggan1687.com/book/3qc3mva/
+- 镇守神州，从万里长城开始 https://www.qinggan1687.com/book/3qc3kof/
+- [斗罗]你已有取死之道 https://www.qinggan1687.com/book/3qc3hm9/
+- 社畜Beta也能被顶A觊觎吗 https://www.qinggan1687.com/book/3qc3gkb/
+- 我真不想当魔头的师妹 https://www.qinggan1687.com/book/3qc3947/
+- 青宁升仙录 https://www.qinggan1687.com/book/3qc37dg/
+- 在这个圈子，叫“跟” https://www.qinggan1687.com/book/3qc35lr/
+- 被鬼怪宠爱的漂亮书生 https://www.qinggan1687.com/book/3qc2v4m/
+- 在诡异世界扮演神明[快穿] https://www.qinggan1687.com/book/3qc2tm4/
+- 社恐直播鉴宝，但带球跑 https://www.qinggan1687.com/book/3qc2tfu/
+- 韩团绿卡不想忍了 https://www.qinggan1687.com/book/3qc2s3t/
+- 获得七个彩虹共感娃娃 https://www.qinggan1687.com/book/3qc2k1d/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.qinggan1687.com/book/3qc2jnb/
+- 木叶RPG，恋爱系物语 https://www.qinggan1687.com/book/3qc2il0/
+- 被迫臣服冰山顶级大小姐O https://www.qinggan1687.com/book/3qc2i5d/
+- 死遁后成了忍界白月光？ https://www.qinggan1687.com/book/3qc2g8u/
+- 耀眼的他 https://www.qinggan1687.com/book/3qc2fe8/
+- 哥你不能不要我 https://www.qinggan1687.com/book/3qc2dqm/
+- 过气男团ACE重生后 https://www.qinggan1687.com/book/3qc2cr9/
+- 言不由衷 https://www.qinggan1687.com/book/3qc2bfk/
+- 被小蜘蛛听见心声后 https://www.qinggan1687.com/book/3qc2b1i/
+- 满级大佬成为养成系[娱乐圈] https://www.qinggan1687.com/book/3qc2ah5/
+- 卷王后妈，八零养娃 https://www.qinggan1687.com/book/3qc2ae4/
+- 重力系杀手误入忍界记实录 https://www.qinggan1687.com/book/3qc2a8o/
+- 这谁的沙雕二次元心声！ https://www.qinggan1687.com/book/3qc29hh/
+- 始乱终弃清冷公子后 https://www.qinggan1687.com/book/3qc29f4/
+- 将妹妹嫁给别人后 https://www.qinggan1687.com/book/3qc26mm/
+- 偷香窃玉 https://www.qinggan1687.com/book/3qc24de/
+- 穿书留子，在线苟命 https://www.qinggan1687.com/book/3qc232j/
+- 一枝枝怨 https://www.qinggan1687.com/book/3qc1vb8/
+- 女巫异世界打工指南[西幻] https://www.qinggan1687.com/book/3qc1sc5/
+- 幸村女友，但赛博除妖师 https://www.qinggan1687.com/book/3qc1rag/
+- 标记母亲的前妻O后 https://www.qinggan1687.com/book/3qc1n4p/
+- 人气反派的马甲演绎实录 https://www.qinggan1687.com/book/3qc1m6r/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.qinggan1687.com/book/3qc1m6b/
+- 荒山安居日常 https://www.qinggan1687.com/book/3qc1ktn/
+- 全民求生里不是这样的！ https://www.qinggan1687.com/book/3qc1hd5/
+- 异界求生从马甲开始 https://www.qinggan1687.com/book/3qc1g4r/
+- 道长，收收神通吧 https://www.qinggan1687.com/book/3qc1eqa/
+- 欢迎光临，万世极乐 https://www.qinggan1687.com/book/3qc193d/
+- 我家民宿，古人抢着上班 https://www.qinggan1687.com/book/3qc143d/
+- 春山慢 https://www.qinggan1687.com/book/3qc123g/
+- 老子顶A，凭什么当皇妃！ https://www.qinggan1687.com/book/3qc11ip/
+- 渴肤症总裁的秘密情人 https://www.qinggan1687.com/book/3qc1149/
+- 漂亮病弱直男缠药封建大爹 https://www.qinggan1687.com/book/3qc102g/
+- 全民求生：我在森林里当初级魔法师 https://www.qinggan1687.com/book/3qc0vgq/
+- 非人马甲与日俱增[升维] https://www.qinggan1687.com/book/3qc0vbu/
+- 悬刃之下 https://www.qinggan1687.com/book/3qc0u18/
+- 星海世界生存指南[无限] https://www.qinggan1687.com/book/3qc0seh/
+- 清澈女大的六零年代 https://www.qinggan1687.com/book/3qc01g1/
+- 五十年代港城日常 https://www.qinggan1687.com/book/3qc018i/
+- 她是反派的背景板母亲 https://www.qinggan1687.com/book/3qc013a/
+- 全民求生:从小木屋到魔法农场 https://www.qinggan1687.com/book/3qc00rh/
+- 日化人生[科研] https://www.qinggan1687.com/book/3qc00qd/
+- 天幕今天也在直播我搞基建 https://www.qinggan1687.com/book/3qbvvsr/
+- [娱乐圈]过分美丽的她 https://www.qinggan1687.com/book/3qbvvrj/
+- 我是唯一地上神国 [赛诗会作品] https://www.qinggan1687.com/book/3qbvvr4/
+- 魔物堆里的人类幼崽 https://www.qinggan1687.com/book/3qbvvm2/
+- 巨物致富：回乡开钓场 https://www.qinggan1687.com/book/3qbvvh9/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.qinggan1687.com/book/3qbvv8u/
+- 反派白月光不按剧情死[快穿] https://www.qinggan1687.com/book/3qbvv69/
+- 我有一座安全城 [赛诗会作品] https://www.qinggan1687.com/book/3qbvv0u/
+- 大瑛弟国 https://www.qinggan1687.com/book/3qbvutn/
+- 海岛求生：生活玩家种田囤货 https://www.qinggan1687.com/book/3qbvups/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1361/index.md)
+- [最新热点小说](/site1361/newhot.md)
+- [人气小说](/site1361/b111.md)
+- [推荐小说](/site1361/recommend1.md)
+- [推荐小说列表](/site1361/recommend/index.md)
+- [热点小说](/site1361/hot/index.md)
+- [全本小说](/site1361/quanben/index.md)
+- [网站地图](/site1361/sitemap/index.md)
+- [标签](/site1361/tag/index.md)
+- [爱情小说](/site1361/category101/index.md)
+- [武侠小说](/site1361/category102/index.md)
+- [奇幻小说](/site1361/category103/index.md)
+- [仙侠小说](/site1361/category104/index.md)
+- [游戏小说](/site1361/category105/index.md)
+- [传奇小说](/site1361/category106/index.md)
+- [科幻小说](/site1361/category107/index.md)
+- [惊悚小说](/site1361/category109/index.md)
+- [悬疑小说](/site1361/category110/index.md)

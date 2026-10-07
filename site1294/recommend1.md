@@ -1,0 +1,182 @@
+
+# 思路客-免费全本小说无弹窗阅读
+
+更新时间：2026-10-05 03:02:41
+
+思路客是无弹窗广告的免费小说阅读网站,提供最新完结小说,包括但不限于全本玄幻小说、都市小说、穿越小说、网游小说、武侠仙侠、历史军事、修真同人等类型的小说供用户免费阅读。 https://www.968577.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.968577.com/book/1b28mr1/
+- 神棍六十年代再就业 https://www.968577.com/book/1b28mr0/
+- 渴肤症总裁的秘密情人 https://www.968577.com/book/1b28mqv/
+- 在将军府任职男仆侍后 https://www.968577.com/book/1b28mqu/
+- 和乙骨前辈网恋后 https://www.968577.com/book/1b28mqt/
+- 陪嫁后被迫成了通房 https://www.968577.com/book/1b28mqr/
+- 黑化超英抽卡中[综英美] https://www.968577.com/book/1b28mqq/
+- 拒婚后，和联姻对象闪婚了 https://www.968577.com/book/1b28mqp/
+- 养媳欲离 https://www.968577.com/book/1b28mqo/
+- 胎穿到恶毒反派肚中 https://www.968577.com/book/1b28mqn/
+- 戏意 https://www.968577.com/book/1b28mqm/
+- [足球]被儿子队友求婚以后 https://www.968577.com/book/1b28mqk/
+- [全职高手]我家攻坚撒手没 https://www.968577.com/book/1b28mqj/
+- [全职高手]走错片场要怎么办 https://www.968577.com/book/1b28mqi/
+- 他怎么还不提分手？ https://www.968577.com/book/1b28mqh/
+- 无法攻略的他[娱乐圈] https://www.968577.com/book/1b28mqg/
+- [诡秘之主]历史同人的神秘学用法 https://www.968577.com/book/1b28mqf/
+- 全民求生里不是这样的！ https://www.968577.com/book/1b28mqe/
+- 禁止勾搭黑化万人迷 https://www.968577.com/book/1b28mqc/
+- 直播手术，外科天才打脸日常[重生] https://www.968577.com/book/1b28mqb/
+- [综英美]这地图不对劲 https://www.968577.com/book/1b28mqa/
+- 浪漫至死也致死 https://www.968577.com/book/1b28mq9/
+- 那什么的小蜘蛛 https://www.968577.com/book/1b28mq8/
+- 超英都在阻止我黑化[综英美] https://www.968577.com/book/1b28mq7/
+- 龙傲天求我挖他仙骨 https://www.968577.com/book/1b28mq6/
+- 论人间失格与血鬼术的适配性 https://www.968577.com/book/1b28mq5/
+- 黎明协奏曲 https://www.968577.com/book/1b28mq4/
+- 今天被邪祟撅了吗？ https://www.968577.com/book/1b28mq3/
+- 假装Daddy儿子翻车后 https://www.968577.com/book/1b28mq2/
+- 男二就是要给龙傲天当老婆的 https://www.968577.com/book/1b28mq1/
+- 少女暴君在乙游 https://www.968577.com/book/1b28mq0/
+- 王妃求子记 https://www.968577.com/book/1b28mpu/
+- 哥，咱俩天下第一好 https://www.968577.com/book/1b28mpt/
+- 在运动番当顶级Bking https://www.968577.com/book/1b28mps/
+- 金光裘 https://www.968577.com/book/1b28mpq/
+- 漂亮知青说他是我未来老婆 https://www.968577.com/book/1b28mpp/
+- 笨蛋美人主动和亲后 https://www.968577.com/book/1b28mpo/
+- 全民求生：我在森林里当初级魔法师 https://www.968577.com/book/1b28mpn/
+- 欢迎光临，万世极乐 https://www.968577.com/book/1b28mpm/
+- 谁家女主是野牦牛啊！ https://www.968577.com/book/1b28mpl/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.968577.com/book/1b28mpk/
+- 女装网骗到校草怎么办 https://www.968577.com/book/1b28mpi/
+- 老板被我渣了两次？ https://www.968577.com/book/1b28mph/
+- 路人攻今天救风尘了吗［快穿］ https://www.968577.com/book/1b28mpg/
+- 我心有憾不可平[历史直播] https://www.968577.com/book/1b28mpf/
+- 哥哥不是我的吗？[九零] https://www.968577.com/book/1b28mpe/
+- 洞房夜，我和夫君一起翻车 https://www.968577.com/book/1b28mpd/
+- 一剑捅穿道侣后他变天道了 https://www.968577.com/book/1b28mpc/
+- 她柔弱不能自理 https://www.968577.com/book/1b28mpb/
+- 橘子小狗只想打排球 https://www.968577.com/book/1b28mpa/
+- 鼬系如何在鸥台生存 https://www.968577.com/book/1b28mp9/
+- 致镜汀 https://www.968577.com/book/1b28mp8/
+- 被坏狗盯上了 https://www.968577.com/book/1b28mp7/
+- 吉食已到 https://www.968577.com/book/1b28mp6/
+- 真千金她一心向道 https://www.968577.com/book/1b28mp5/
+- 华夏卡牌，但亡国之君 https://www.968577.com/book/1b28mp4/
+- ［西游］我的饭馆通大唐 https://www.968577.com/book/1b28mp3/
+- [综]恋与蜘蛛侠 https://www.968577.com/book/1b28mp2/
+- 穿成丫鬟，但绑定游戏面板 https://www.968577.com/book/1b28mp1/
+- 谁是真正的猎物？ https://www.968577.com/book/1b28mp0/
+- 港城暴发户的败家妻[年代] https://www.968577.com/book/1b28mov/
+- 日向怎么通关忍界 https://www.968577.com/book/1b28mou/
+- 人鱼种草养毛茸茸 https://www.968577.com/book/1b28mot/
+- 心上春 https://www.968577.com/book/1b28mos/
+- 全天下都在求太子殿下别死！ https://www.968577.com/book/1b28moq/
+- 谁要给暴君当狗啊？！ https://www.968577.com/book/1b28mop/
+- 穿书九零，老实嫂子要嫁人 https://www.968577.com/book/1b28moo/
+- 有限制体质的仙尊徒弟 https://www.968577.com/book/1b28mon/
+- 失忆后误把顶流对家当男朋友 https://www.968577.com/book/1b28mom/
+- 妖狐崽崽，但全家普通人 https://www.968577.com/book/1b28mol/
+- 重生不入东宫 https://www.968577.com/book/1b28mok/
+- 破了剑道魁首的无情道后 https://www.968577.com/book/1b28moj/
+- 穿进女儿国，误娶笨蛋美人 https://www.968577.com/book/1b28moi/
+- 被小蜘蛛听见心声后 https://www.968577.com/book/1b28mnn/
+- 言不由衷 https://www.968577.com/book/1b28mmc/
+- 宿傩妹妹今天也在艰难求生 https://www.968577.com/book/1b28mmb/
+- 这个替嫁让我来！ https://www.968577.com/book/1b28mlg/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.968577.com/book/1b28mkc/
+- 被鬼怪宠爱的漂亮书生 https://www.968577.com/book/1b28mk8/
+- [娱乐圈]学医救不了性冷淡！ https://www.968577.com/book/1b28mjr/
+- 康熙宠妃日常 https://www.968577.com/book/1b28mi0/
+- 从1951开始 https://www.968577.com/book/1b28mgs/
+- 清穿女回来后[天幕] https://www.968577.com/book/1b28mgd/
+- 在这个圈子，叫“跟” https://www.968577.com/book/1b28mgc/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.968577.com/book/1b28mdu/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.968577.com/book/1b28mcg/
+- 十二星座请选择你的安全屋 https://www.968577.com/book/1b28mat/
+- 星际团宠小人鱼 [赛诗会作品] https://www.968577.com/book/1b28m9j/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.968577.com/book/1b28m8l/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.968577.com/book/1b28m8g/
+- 魔物堆里的人类幼崽 https://www.968577.com/book/1b28m3k/
+- 反派白月光不按剧情死[快穿] https://www.968577.com/book/1b28m39/
+- 幸村女友，但赛博除妖师 https://www.968577.com/book/1b28ks6/
+- 昭暮 https://www.968577.com/book/1b28b9l/
+- 九零重组小家庭 https://www.968577.com/book/1b277io/
+- [足球]足坛人生模拟器 https://www.968577.com/book/1b2733d/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.968577.com/book/1b26ofq/
+- 从维多利亚时代开始 https://www.968577.com/book/1b26be7/
+- 耀眼的他 https://www.968577.com/book/1b25tj0/
+- 食明 https://www.968577.com/book/1b25sh5/
+- 诡话第一boss [赛诗会作品] https://www.968577.com/book/1b25p60/
+- 喂，别睡了！ https://www.968577.com/book/1b25oe0/
+- 我老婆怎么是反派暴君 https://www.968577.com/book/1b25jhu/
+- 日化人生[科研] https://www.968577.com/book/1b25h3l/
+- 今天还不可以造反吗？？？ https://www.968577.com/book/1b25gvr/
+- 巨物致富：回乡开钓场 https://www.968577.com/book/1b25ef5/
+- 镇守神州，从万里长城开始 https://www.968577.com/book/1b25c40/
+- [斗罗]你已有取死之道 https://www.968577.com/book/1b25am3/
+- 社畜Beta也能被顶A觊觎吗 https://www.968577.com/book/1b259iv/
+- 我真不想当魔头的师妹 https://www.968577.com/book/1b256td/
+- 青宁升仙录 https://www.968577.com/book/1b251ok/
+- 禁止限制文主角转职龙傲天 https://www.968577.com/book/1b251kh/
+- 社恐直播鉴宝，但带球跑 https://www.968577.com/book/49snai/
+- 天幕今天也在直播我搞基建 https://www.968577.com/book/49sn8e/
+- 她是反派的背景板母亲 https://www.968577.com/book/49smnp/
+- 在诡异世界扮演神明[快穿] https://www.968577.com/book/49skt0/
+- 获得七个彩虹共感娃娃 https://www.968577.com/book/49s9h6/
+- 木叶RPG，恋爱系物语 https://www.968577.com/book/49s8ko/
+- 被迫臣服冰山顶级大小姐O https://www.968577.com/book/49s2d9/
+- 满级大佬成为养成系[娱乐圈] https://www.968577.com/book/49s2bo/
+- 始乱终弃清冷公子后 https://www.968577.com/book/49s06o/
+- 重力系杀手误入忍界记实录 https://www.968577.com/book/49rr77/
+- 偷香窃玉 https://www.968577.com/book/49rpa6/
+- 过气男团ACE重生后 https://www.968577.com/book/49roni/
+- 死遁后成了忍界白月光？ https://www.968577.com/book/49ro8e/
+- 一枝枝怨 https://www.968577.com/book/49rlku/
+- 这谁的沙雕二次元心声！ https://www.968577.com/book/49rlcv/
+- 将妹妹嫁给别人后 https://www.968577.com/book/49rfeg/
+- 荒山安居日常 https://www.968577.com/book/49re2v/
+- 标记母亲的前妻O后 https://www.968577.com/book/49rbef/
+- 韩团绿卡不想忍了 https://www.968577.com/book/49r7a9/
+- 异界求生从马甲开始 https://www.968577.com/book/49r5qk/
+- 道长，收收神通吧 https://www.968577.com/book/49r5i2/
+- 卷王后妈，八零养娃 https://www.968577.com/book/49r3f7/
+- 人气反派的马甲演绎实录 https://www.968577.com/book/49r311/
+- 春山慢 https://www.968577.com/book/49qvjf/
+- 我家民宿，古人抢着上班 https://www.968577.com/book/49qulp/
+- 漂亮病弱直男缠药封建大爹 https://www.968577.com/book/49qqrp/
+- 穿书留子，在线苟命 https://www.968577.com/book/49qq53/
+- 非人马甲与日俱增[升维] https://www.968577.com/book/49qpm2/
+- 星海世界生存指南[无限] https://www.968577.com/book/49qpie/
+- 老子顶A，凭什么当皇妃！ https://www.968577.com/book/49qpi8/
+- 悬刃之下 https://www.968577.com/book/49qnpf/
+- 哥你不能不要我 https://www.968577.com/book/49ql9h/
+- 女巫异世界打工指南[西幻] https://www.968577.com/book/dp2cc/
+- 我有一座安全城 [赛诗会作品] https://www.968577.com/book/dp27s/
+- 大瑛弟国 https://www.968577.com/book/dp187/
+- 五十年代港城日常 https://www.968577.com/book/dp0un/
+- 清澈女大的六零年代 https://www.968577.com/book/dp0q3/
+- 海岛求生：生活玩家种田囤货 https://www.968577.com/book/dp0hd/
+- 我是唯一地上神国 [赛诗会作品] https://www.968577.com/book/dp0a8/
+- [娱乐圈]过分美丽的她 https://www.968577.com/book/1c3oi/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.968577.com/book/1c3l6/
+- 全民求生:从小木屋到魔法农场 https://www.968577.com/book/1c3d6/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1294/index.md)
+- [最新热点小说](/site1294/newhot.md)
+- [人气小说](/site1294/b111.md)
+- [推荐小说](/site1294/recommend1.md)
+- [推荐小说列表](/site1294/recommend/index.md)
+- [热点小说](/site1294/hot/index.md)
+- [全本小说](/site1294/quanben/index.md)
+- [网站地图](/site1294/sitemap/index.md)
+- [标签](/site1294/tag/index.md)
+- [爱情小说](/site1294/category101/index.md)
+- [武侠小说](/site1294/category102/index.md)
+- [奇幻小说](/site1294/category103/index.md)
+- [仙侠小说](/site1294/category104/index.md)
+- [游戏小说](/site1294/category105/index.md)
+- [传奇小说](/site1294/category106/index.md)
+- [科幻小说](/site1294/category107/index.md)
+- [惊悚小说](/site1294/category109/index.md)
+- [悬疑小说](/site1294/category110/index.md)
