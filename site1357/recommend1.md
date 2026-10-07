@@ -1,0 +1,182 @@
+
+# 书香小说网 - 书友最值得收藏的网络小说阅读平台
+
+更新时间：2026-10-05 03:05:33
+
+书香小说网是书友们最值得收藏的一个网络小说阅读网站。这里有最新、最全的小说资源供您选择，包括但不限于玄幻奇幻、都市言情等多种类型。支持在线免费阅读，让每一位读者都能享受到优质的内容服务。 https://www.shuxiang368.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.shuxiang368.com/book/3qko860/
+- [诡秘之主]历史同人的神秘学用法 https://www.shuxiang368.com/book/3qko85t/
+- 穿成丫鬟，但绑定游戏面板 https://www.shuxiang368.com/book/3qko85o/
+- 破了剑道魁首的无情道后 https://www.shuxiang368.com/book/3qko85n/
+- 心上春 https://www.shuxiang368.com/book/3qko85k/
+- 和乙骨前辈网恋后 https://www.shuxiang368.com/book/3qko85i/
+- 无法攻略的他[娱乐圈] https://www.shuxiang368.com/book/3qko85f/
+- 金光裘 https://www.shuxiang368.com/book/3qko85c/
+- 龙傲天求我挖他仙骨 https://www.shuxiang368.com/book/3qko85b/
+- 少女暴君在乙游 https://www.shuxiang368.com/book/3qko85a/
+- 有限制体质的仙尊徒弟 https://www.shuxiang368.com/book/3qko859/
+- ［西游］我的饭馆通大唐 https://www.shuxiang368.com/book/3qko854/
+- 王妃求子记 https://www.shuxiang368.com/book/3qko84r/
+- 戏意 https://www.shuxiang368.com/book/3qko84q/
+- 真千金她一心向道 https://www.shuxiang368.com/book/3qko84o/
+- 人鱼种草养毛茸茸 https://www.shuxiang368.com/book/3qko84n/
+- 拒婚后，和联姻对象闪婚了 https://www.shuxiang368.com/book/3qko84k/
+- 假装Daddy儿子翻车后 https://www.shuxiang368.com/book/3qko84i/
+- 养媳欲离 https://www.shuxiang368.com/book/3qko84h/
+- 被坏狗盯上了 https://www.shuxiang368.com/book/3qko84g/
+- [综英美]这地图不对劲 https://www.shuxiang368.com/book/3qko84d/
+- 浪漫至死也致死 https://www.shuxiang368.com/book/3qko84c/
+- 黎明协奏曲 https://www.shuxiang368.com/book/3qko84b/
+- 论人间失格与血鬼术的适配性 https://www.shuxiang368.com/book/3qko848/
+- 我心有憾不可平[历史直播] https://www.shuxiang368.com/book/3qko847/
+- 一剑捅穿道侣后他变天道了 https://www.shuxiang368.com/book/3qko846/
+- 橘子小狗只想打排球 https://www.shuxiang368.com/book/3qko83v/
+- 今天被邪祟撅了吗？ https://www.shuxiang368.com/book/3qko83u/
+- 谁家女主是野牦牛啊！ https://www.shuxiang368.com/book/3qko83s/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.shuxiang368.com/book/3qko83p/
+- 男二就是要给龙傲天当老婆的 https://www.shuxiang368.com/book/3qko83o/
+- 她柔弱不能自理 https://www.shuxiang368.com/book/3qko83n/
+- 日向怎么通关忍界 https://www.shuxiang368.com/book/3qko83k/
+- 女装网骗到校草怎么办 https://www.shuxiang368.com/book/3qko83i/
+- [综]恋与蜘蛛侠 https://www.shuxiang368.com/book/3qko83d/
+- 全天下都在求太子殿下别死！ https://www.shuxiang368.com/book/3qko83a/
+- 重生不入东宫 https://www.shuxiang368.com/book/3qko839/
+- 谁是真正的猎物？ https://www.shuxiang368.com/book/3qko836/
+- 在将军府任职男仆侍后 https://www.shuxiang368.com/book/3qko835/
+- 穿进女儿国，误娶笨蛋美人 https://www.shuxiang368.com/book/3qko834/
+- 漂亮知青说他是我未来老婆 https://www.shuxiang368.com/book/3qko82v/
+- 失忆后误把顶流对家当男朋友 https://www.shuxiang368.com/book/3qko82k/
+- 港城暴发户的败家妻[年代] https://www.shuxiang368.com/book/3qko82j/
+- 他怎么还不提分手？ https://www.shuxiang368.com/book/3qko82g/
+- 致镜汀 https://www.shuxiang368.com/book/3qko82f/
+- 洞房夜，我和夫君一起翻车 https://www.shuxiang368.com/book/3qko82c/
+- 吉食已到 https://www.shuxiang368.com/book/3qko82a/
+- [足球]被儿子队友求婚以后 https://www.shuxiang368.com/book/3qko824/
+- 哥哥不是我的吗？[九零] https://www.shuxiang368.com/book/3qko81v/
+- 谁要给暴君当狗啊？！ https://www.shuxiang368.com/book/3qko81t/
+- 穿书九零，老实嫂子要嫁人 https://www.shuxiang368.com/book/3qko81o/
+- 禁止勾搭黑化万人迷 https://www.shuxiang368.com/book/3qko81l/
+- [全职高手]走错片场要怎么办 https://www.shuxiang368.com/book/3qko81k/
+- 超英都在阻止我黑化[综英美] https://www.shuxiang368.com/book/3qko81g/
+- 陪嫁后被迫成了通房 https://www.shuxiang368.com/book/3qko81d/
+- 胎穿到恶毒反派肚中 https://www.shuxiang368.com/book/3qko81c/
+- 那什么的小蜘蛛 https://www.shuxiang368.com/book/3qko81a/
+- 哥，咱俩天下第一好 https://www.shuxiang368.com/book/3qko819/
+- 妖狐崽崽，但全家普通人 https://www.shuxiang368.com/book/3qko817/
+- 神棍六十年代再就业 https://www.shuxiang368.com/book/3qko815/
+- 笨蛋美人主动和亲后 https://www.shuxiang368.com/book/3qko814/
+- 直播手术，外科天才打脸日常[重生] https://www.shuxiang368.com/book/3qko812/
+- 黑化超英抽卡中[综英美] https://www.shuxiang368.com/book/3qko80u/
+- 老板被我渣了两次？ https://www.shuxiang368.com/book/3qko80s/
+- 路人攻今天救风尘了吗［快穿］ https://www.shuxiang368.com/book/3qko80q/
+- [全职高手]我家攻坚撒手没 https://www.shuxiang368.com/book/3qko80p/
+- 鼬系如何在鸥台生存 https://www.shuxiang368.com/book/3qko80l/
+- 在运动番当顶级Bking https://www.shuxiang368.com/book/3qko80k/
+- 华夏卡牌，但亡国之君 https://www.shuxiang368.com/book/3qko80h/
+- [娱乐圈]学医救不了性冷淡！ https://www.shuxiang368.com/book/3qko7vd/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.shuxiang368.com/book/3qko7vb/
+- 宿傩妹妹今天也在艰难求生 https://www.shuxiang368.com/book/3qko7v9/
+- 清穿女回来后[天幕] https://www.shuxiang368.com/book/3qko7t7/
+- 这个替嫁让我来！ https://www.shuxiang368.com/book/3qko7sq/
+- 康熙宠妃日常 https://www.shuxiang368.com/book/3qko7s5/
+- 从1951开始 https://www.shuxiang368.com/book/3qko7qb/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.shuxiang368.com/book/3qknrc7/
+- 今天还不可以造反吗？？？ https://www.shuxiang368.com/book/3qknlrb/
+- 喂，别睡了！ https://www.shuxiang368.com/book/3qkngg2/
+- 九零重组小家庭 https://www.shuxiang368.com/book/3qkng6j/
+- 我老婆怎么是反派暴君 https://www.shuxiang368.com/book/3qknfnc/
+- [足球]足坛人生模拟器 https://www.shuxiang368.com/book/3qknf6e/
+- 十二星座请选择你的安全屋 https://www.shuxiang368.com/book/3qkn9vk/
+- 从维多利亚时代开始 https://www.shuxiang368.com/book/3qkn1rp/
+- 昭暮 https://www.shuxiang368.com/book/3qkmvvc/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.shuxiang368.com/book/3qkms3i/
+- 星际团宠小人鱼 [赛诗会作品] https://www.shuxiang368.com/book/3qkms1p/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.shuxiang368.com/book/3qkmkum/
+- 食明 https://www.shuxiang368.com/book/3qkmj1u/
+- 诡话第一boss [赛诗会作品] https://www.shuxiang368.com/book/3qkmfjb/
+- 镇守神州，从万里长城开始 https://www.shuxiang368.com/book/3qkmas1/
+- 禁止限制文主角转职龙傲天 https://www.shuxiang368.com/book/3qkma9b/
+- [斗罗]你已有取死之道 https://www.shuxiang368.com/book/3qkm8lj/
+- 社畜Beta也能被顶A觊觎吗 https://www.shuxiang368.com/book/3qkm3s4/
+- 我真不想当魔头的师妹 https://www.shuxiang368.com/book/3qklu1b/
+- 在这个圈子，叫“跟” https://www.shuxiang368.com/book/3qkltci/
+- 青宁升仙录 https://www.shuxiang368.com/book/3qklr6p/
+- 社恐直播鉴宝，但带球跑 https://www.shuxiang368.com/book/3qkljpq/
+- 被鬼怪宠爱的漂亮书生 https://www.shuxiang368.com/book/3qklj3n/
+- 在诡异世界扮演神明[快穿] https://www.shuxiang368.com/book/3qklj0m/
+- 韩团绿卡不想忍了 https://www.shuxiang368.com/book/3qklgvn/
+- 获得七个彩虹共感娃娃 https://www.shuxiang368.com/book/3qklbhb/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.shuxiang368.com/book/3qkl8d2/
+- 木叶RPG，恋爱系物语 https://www.shuxiang368.com/book/3qkl69o/
+- 被迫臣服冰山顶级大小姐O https://www.shuxiang368.com/book/3qkl69a/
+- 死遁后成了忍界白月光？ https://www.shuxiang368.com/book/3qkl4m9/
+- 耀眼的他 https://www.shuxiang368.com/book/3qkl3hh/
+- 言不由衷 https://www.shuxiang368.com/book/3qkl27u/
+- 被小蜘蛛听见心声后 https://www.shuxiang368.com/book/3qkl21i/
+- 过气男团ACE重生后 https://www.shuxiang368.com/book/3qkl1om/
+- 哥你不能不要我 https://www.shuxiang368.com/book/3qkl19c/
+- 这谁的沙雕二次元心声！ https://www.shuxiang368.com/book/3qkkvar/
+- 始乱终弃清冷公子后 https://www.shuxiang368.com/book/3qkkv25/
+- 卷王后妈，八零养娃 https://www.shuxiang368.com/book/3qkktu8/
+- 重力系杀手误入忍界记实录 https://www.shuxiang368.com/book/3qkktob/
+- 满级大佬成为养成系[娱乐圈] https://www.shuxiang368.com/book/3qkktgf/
+- 将妹妹嫁给别人后 https://www.shuxiang368.com/book/3qkkt2j/
+- 穿书留子，在线苟命 https://www.shuxiang368.com/book/3qkkok2/
+- 偷香窃玉 https://www.shuxiang368.com/book/3qkko8s/
+- 一枝枝怨 https://www.shuxiang368.com/book/3qkkn1k/
+- 女巫异世界打工指南[西幻] https://www.shuxiang368.com/book/3qkkgvc/
+- 幸村女友，但赛博除妖师 https://www.shuxiang368.com/book/3qkkfs1/
+- 标记母亲的前妻O后 https://www.shuxiang368.com/book/3qkkce8/
+- 荒山安居日常 https://www.shuxiang368.com/book/3qkkamr/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.shuxiang368.com/book/3qkkam6/
+- 人气反派的马甲演绎实录 https://www.shuxiang368.com/book/3qkk9k0/
+- 全民求生里不是这样的！ https://www.shuxiang368.com/book/3qkk6qv/
+- 异界求生从马甲开始 https://www.shuxiang368.com/book/3qkk5i3/
+- 道长，收收神通吧 https://www.shuxiang368.com/book/3qkk4ib/
+- 欢迎光临，万世极乐 https://www.shuxiang368.com/book/3qkjt1h/
+- 春山慢 https://www.shuxiang368.com/book/3qkjnr0/
+- 我家民宿，古人抢着上班 https://www.shuxiang368.com/book/3qkjnnm/
+- 漂亮病弱直男缠药封建大爹 https://www.shuxiang368.com/book/3qkjn1m/
+- 全民求生：我在森林里当初级魔法师 https://www.shuxiang368.com/book/3qkjm28/
+- 非人马甲与日俱增[升维] https://www.shuxiang368.com/book/3qkjll8/
+- 渴肤症总裁的秘密情人 https://www.shuxiang368.com/book/3qkjkib/
+- 老子顶A，凭什么当皇妃！ https://www.shuxiang368.com/book/3qkjkba/
+- 悬刃之下 https://www.shuxiang368.com/book/3qkji25/
+- 星海世界生存指南[无限] https://www.shuxiang368.com/book/3qkjhqi/
+- 五十年代港城日常 https://www.shuxiang368.com/book/3qkimo7/
+- 魔物堆里的人类幼崽 https://www.shuxiang368.com/book/3qkimm3/
+- 全民求生:从小木屋到魔法农场 https://www.shuxiang368.com/book/3qkimh2/
+- 海岛求生：生活玩家种田囤货 https://www.shuxiang368.com/book/3qkimgp/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.shuxiang368.com/book/3qkim77/
+- 我有一座安全城 [赛诗会作品] https://www.shuxiang368.com/book/3qkim3l/
+- 反派白月光不按剧情死[快穿] https://www.shuxiang368.com/book/3qkim19/
+- 清澈女大的六零年代 https://www.shuxiang368.com/book/3qkilhq/
+- 巨物致富：回乡开钓场 https://www.shuxiang368.com/book/3qkileq/
+- [娱乐圈]过分美丽的她 https://www.shuxiang368.com/book/3qkil43/
+- 我是唯一地上神国 [赛诗会作品] https://www.shuxiang368.com/book/3qkil1c/
+- 天幕今天也在直播我搞基建 https://www.shuxiang368.com/book/3qkikrk/
+- 日化人生[科研] https://www.shuxiang368.com/book/3qkikdh/
+- 她是反派的背景板母亲 https://www.shuxiang368.com/book/3qkik96/
+- 大瑛弟国 https://www.shuxiang368.com/book/3qkik16/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1357/index.md)
+- [最新热点小说](/site1357/newhot.md)
+- [人气小说](/site1357/b111.md)
+- [推荐小说](/site1357/recommend1.md)
+- [推荐小说列表](/site1357/recommend/index.md)
+- [热点小说](/site1357/hot/index.md)
+- [全本小说](/site1357/quanben/index.md)
+- [网站地图](/site1357/sitemap/index.md)
+- [标签](/site1357/tag/index.md)
+- [爱情小说](/site1357/category101/index.md)
+- [武侠小说](/site1357/category102/index.md)
+- [奇幻小说](/site1357/category103/index.md)
+- [仙侠小说](/site1357/category104/index.md)
+- [游戏小说](/site1357/category105/index.md)
+- [传奇小说](/site1357/category106/index.md)
+- [科幻小说](/site1357/category107/index.md)
+- [惊悚小说](/site1357/category109/index.md)
+- [悬疑小说](/site1357/category110/index.md)

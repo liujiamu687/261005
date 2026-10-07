@@ -1,0 +1,182 @@
+
+# 耽美小说网 - 最热门的耽美小说在线阅读
+
+更新时间：2026-10-05 03:04:45
+
+耽美小说网是一个广大书友喜欢的小说网，免费为您提供热门耽美小说、女生小说、都市言情小说无弹窗在线阅读和txt下载。 https://www.nvwagen.com
+
+## 最新小说
+- 邪神崽崽找上门了！ https://www.nvwagen.com/book/8u4jm5k/
+- 她柔弱不能自理 https://www.nvwagen.com/book/8u4jm5j/
+- 超英都在阻止我黑化[综英美] https://www.nvwagen.com/book/8u4jm5g/
+- 男二就是要给龙傲天当老婆的 https://www.nvwagen.com/book/8u4jm5f/
+- 穿成丫鬟，但绑定游戏面板 https://www.nvwagen.com/book/8u4jm5c/
+- 真千金她一心向道 https://www.nvwagen.com/book/8u4jm5a/
+- 他怎么还不提分手？ https://www.nvwagen.com/book/8u4jm58/
+- 谁家女主是野牦牛啊！ https://www.nvwagen.com/book/8u4jm4u/
+- 我心有憾不可平[历史直播] https://www.nvwagen.com/book/8u4jm4t/
+- 漂亮知青说他是我未来老婆 https://www.nvwagen.com/book/8u4jm4s/
+- ［娱乐圈］顶流巨星是我十年网友 https://www.nvwagen.com/book/8u4jm4r/
+- 被坏狗盯上了 https://www.nvwagen.com/book/8u4jm4o/
+- 和乙骨前辈网恋后 https://www.nvwagen.com/book/8u4jm4l/
+- [综]恋与蜘蛛侠 https://www.nvwagen.com/book/8u4jm4k/
+- 今天被邪祟撅了吗？ https://www.nvwagen.com/book/8u4jm4e/
+- 直播手术，外科天才打脸日常[重生] https://www.nvwagen.com/book/8u4jm4d/
+- 王妃求子记 https://www.nvwagen.com/book/8u4jm49/
+- 养媳欲离 https://www.nvwagen.com/book/8u4jm46/
+- 神棍六十年代再就业 https://www.nvwagen.com/book/8u4jm44/
+- ［西游］我的饭馆通大唐 https://www.nvwagen.com/book/8u4jm41/
+- 禁止勾搭黑化万人迷 https://www.nvwagen.com/book/8u4jm3o/
+- 陪嫁后被迫成了通房 https://www.nvwagen.com/book/8u4jm3n/
+- 金光裘 https://www.nvwagen.com/book/8u4jm3m/
+- 笨蛋美人主动和亲后 https://www.nvwagen.com/book/8u4jm3l/
+- 论人间失格与血鬼术的适配性 https://www.nvwagen.com/book/8u4jm3g/
+- [全职高手]我家攻坚撒手没 https://www.nvwagen.com/book/8u4jm3e/
+- 穿书九零，老实嫂子要嫁人 https://www.nvwagen.com/book/8u4jm3a/
+- 拒婚后，和联姻对象闪婚了 https://www.nvwagen.com/book/8u4jm38/
+- [足球]被儿子队友求婚以后 https://www.nvwagen.com/book/8u4jm36/
+- 吉食已到 https://www.nvwagen.com/book/8u4jm35/
+- 鼬系如何在鸥台生存 https://www.nvwagen.com/book/8u4jm31/
+- 黑化超英抽卡中[综英美] https://www.nvwagen.com/book/8u4jm30/
+- 少女暴君在乙游 https://www.nvwagen.com/book/8u4jm2u/
+- 谁要给暴君当狗啊？！ https://www.nvwagen.com/book/8u4jm2t/
+- 破了剑道魁首的无情道后 https://www.nvwagen.com/book/8u4jm2r/
+- 哥，咱俩天下第一好 https://www.nvwagen.com/book/8u4jm2l/
+- 心上春 https://www.nvwagen.com/book/8u4jm2i/
+- [综英美]这地图不对劲 https://www.nvwagen.com/book/8u4jm2c/
+- 橘子小狗只想打排球 https://www.nvwagen.com/book/8u4jm2a/
+- 有限制体质的仙尊徒弟 https://www.nvwagen.com/book/8u4jm27/
+- 妖狐崽崽，但全家普通人 https://www.nvwagen.com/book/8u4jm26/
+- 人鱼种草养毛茸茸 https://www.nvwagen.com/book/8u4jm23/
+- 港城暴发户的败家妻[年代] https://www.nvwagen.com/book/8u4jm20/
+- 一剑捅穿道侣后他变天道了 https://www.nvwagen.com/book/8u4jm1v/
+- 胎穿到恶毒反派肚中 https://www.nvwagen.com/book/8u4jm1u/
+- 致镜汀 https://www.nvwagen.com/book/8u4jm1t/
+- 龙傲天求我挖他仙骨 https://www.nvwagen.com/book/8u4jm1s/
+- 失忆后误把顶流对家当男朋友 https://www.nvwagen.com/book/8u4jm1r/
+- 洞房夜，我和夫君一起翻车 https://www.nvwagen.com/book/8u4jm1q/
+- 黎明协奏曲 https://www.nvwagen.com/book/8u4jm1p/
+- 假装Daddy儿子翻车后 https://www.nvwagen.com/book/8u4jm1f/
+- 谁是真正的猎物？ https://www.nvwagen.com/book/8u4jm19/
+- 戏意 https://www.nvwagen.com/book/8u4jm18/
+- [全职高手]走错片场要怎么办 https://www.nvwagen.com/book/8u4jm17/
+- [诡秘之主]历史同人的神秘学用法 https://www.nvwagen.com/book/8u4jm13/
+- 老板被我渣了两次？ https://www.nvwagen.com/book/8u4jm12/
+- 华夏卡牌，但亡国之君 https://www.nvwagen.com/book/8u4jm0q/
+- 无法攻略的他[娱乐圈] https://www.nvwagen.com/book/8u4jm0l/
+- 哥哥不是我的吗？[九零] https://www.nvwagen.com/book/8u4jm0k/
+- 日向怎么通关忍界 https://www.nvwagen.com/book/8u4jm0j/
+- 重生不入东宫 https://www.nvwagen.com/book/8u4jm0g/
+- 女装网骗到校草怎么办 https://www.nvwagen.com/book/8u4jm0e/
+- 那什么的小蜘蛛 https://www.nvwagen.com/book/8u4jm0c/
+- 路人攻今天救风尘了吗［快穿］ https://www.nvwagen.com/book/8u4jm0b/
+- 在将军府任职男仆侍后 https://www.nvwagen.com/book/8u4jm0a/
+- 人在首尔，女演员成名之路[娱乐圈] https://www.nvwagen.com/book/8u4jlc9/
+- [娱乐圈]学医救不了性冷淡！ https://www.nvwagen.com/book/8u4jl9s/
+- 宿傩妹妹今天也在艰难求生 https://www.nvwagen.com/book/8u4jl9h/
+- 这个替嫁让我来！ https://www.nvwagen.com/book/8u4jh0j/
+- 从1951开始 https://www.nvwagen.com/book/8u4j4v3/
+- 清穿女回来后[天幕] https://www.nvwagen.com/book/8u4j4ud/
+- 康熙宠妃日常 https://www.nvwagen.com/book/8u4j4td/
+- 天幕今天也在直播我搞基建 https://www.nvwagen.com/book/8u4j4m6/
+- 今天还不可以造反吗？？？ https://www.nvwagen.com/book/8u4iv2r/
+- [足球]足坛人生模拟器 https://www.nvwagen.com/book/8u4isto/
+- 喂，别睡了！ https://www.nvwagen.com/book/8u4iqvc/
+- 我老婆怎么是反派暴君 https://www.nvwagen.com/book/8u4inir/
+- 从维多利亚时代开始 https://www.nvwagen.com/book/8u4ifg7/
+- 昭暮 https://www.nvwagen.com/book/8u4ibac/
+- 九零重组小家庭 https://www.nvwagen.com/book/8u4ia8g/
+- 食明 https://www.nvwagen.com/book/8u4i10f/
+- 诡话第一boss [赛诗会作品] https://www.nvwagen.com/book/8u4htmf/
+- 镇守神州，从万里长城开始 https://www.nvwagen.com/book/8u4hsv6/
+- [斗罗]你已有取死之道 https://www.nvwagen.com/book/8u4hsos/
+- 在这个圈子，叫“跟” https://www.nvwagen.com/book/8u4hqog/
+- 被鬼怪宠爱的漂亮书生 https://www.nvwagen.com/book/8u4hqh3/
+- 反派白月光不按剧情死[快穿] https://www.nvwagen.com/book/8u4hpe4/
+- 全天下都在求太子殿下别死！ https://www.nvwagen.com/book/8u4ho3u/
+- 浪漫至死也致死 https://www.nvwagen.com/book/8u4hntu/
+- [原神+崩铁]在提瓦特隐居也未尝不可 https://www.nvwagen.com/book/8u4hnd2/
+- 社畜Beta也能被顶A觊觎吗 https://www.nvwagen.com/book/8u4hjk2/
+- 我真不想当魔头的师妹 https://www.nvwagen.com/book/8u4hdjn/
+- 被小蜘蛛听见心声后 https://www.nvwagen.com/book/8u4hc63/
+- 韩团绿卡不想忍了 https://www.nvwagen.com/book/8u4ha3f/
+- 青宁升仙录 https://www.nvwagen.com/book/8u4h9dh/
+- 在诡异世界扮演神明[快穿] https://www.nvwagen.com/book/8u4h5k4/
+- 苏娘子汴京摆摊日常（美食） [赛诗会作品] https://www.nvwagen.com/book/8u4h3to/
+- 哥你不能不要我 https://www.nvwagen.com/book/8u4h2p9/
+- 社恐直播鉴宝，但带球跑 https://www.nvwagen.com/book/8u4h13e/
+- 获得七个彩虹共感娃娃 https://www.nvwagen.com/book/8u4grbh/
+- 言不由衷 https://www.nvwagen.com/book/8u4gp7m/
+- 被迫臣服冰山顶级大小姐O https://www.nvwagen.com/book/8u4goj4/
+- 过气男团ACE重生后 https://www.nvwagen.com/book/8u4go8h/
+- 死遁后成了忍界白月光？ https://www.nvwagen.com/book/8u4gndr/
+- 耀眼的他 https://www.nvwagen.com/book/8u4glq4/
+- 这谁的沙雕二次元心声！ https://www.nvwagen.com/book/8u4gloj/
+- 重力系杀手误入忍界记实录 https://www.nvwagen.com/book/8u4gi9b/
+- 始乱终弃清冷公子后 https://www.nvwagen.com/book/8u4gelg/
+- 满级大佬成为养成系[娱乐圈] https://www.nvwagen.com/book/8u4gccl/
+- 穿书留子，在线苟命 https://www.nvwagen.com/book/8u4gafk/
+- 偷香窃玉 https://www.nvwagen.com/book/8u4g9ml/
+- 一枝枝怨 https://www.nvwagen.com/book/8u4g61f/
+- 魔物堆里的人类幼崽 https://www.nvwagen.com/book/8u4g4e6/
+- 女巫异世界打工指南[西幻] https://www.nvwagen.com/book/8u4g1rh/
+- 幸村女友，但赛博除妖师 https://www.nvwagen.com/book/8u4g00g/
+- 标记母亲的前妻O后 https://www.nvwagen.com/book/8u4fsut/
+- 全民求生里不是这样的！ https://www.nvwagen.com/book/8u4fs35/
+- 深渊if，从染血骑士迪卢克开始[原神] https://www.nvwagen.com/book/8u4friu/
+- 穿进女儿国，误娶笨蛋美人 https://www.nvwagen.com/book/8u4frbf/
+- 欢迎光临，万世极乐 https://www.nvwagen.com/book/8u4fnk7/
+- 荒山安居日常 https://www.nvwagen.com/book/8u4fnb2/
+- 全民求生：我在森林里当初级魔法师 https://www.nvwagen.com/book/8u4fmta/
+- 道长，收收神通吧 https://www.nvwagen.com/book/8u4fiam/
+- 异界求生从马甲开始 https://www.nvwagen.com/book/8u4fhhu/
+- 将妹妹嫁给别人后 https://www.nvwagen.com/book/8u4fhh7/
+- 十二星座请选择你的安全屋 https://www.nvwagen.com/book/8u4fca0/
+- 非人马甲与日俱增[升维] https://www.nvwagen.com/book/8u4f7hi/
+- 我家民宿，古人抢着上班 https://www.nvwagen.com/book/8u4f78l/
+- 渴肤症总裁的秘密情人 https://www.nvwagen.com/book/8u4f65p/
+- 春山慢 https://www.nvwagen.com/book/8u4f5f4/
+- 漂亮病弱直男缠药封建大爹 https://www.nvwagen.com/book/8u4f3fg/
+- 老子顶A，凭什么当皇妃！ https://www.nvwagen.com/book/8u4f30k/
+- 悬刃之下 https://www.nvwagen.com/book/8u4f2ha/
+- 星海世界生存指南[无限] https://www.nvwagen.com/book/8u4f0v2/
+- 在运动番当顶级Bking https://www.nvwagen.com/book/8u4f0l0/
+- 开局忽悠煤老板拍偶像剧[九零] https://www.nvwagen.com/book/8u4e4ms/
+- [诡秘之主]极光会的我因为太过智慧成为真神了 https://www.nvwagen.com/book/8u4e4dp/
+- 巨物致富：回乡开钓场 https://www.nvwagen.com/book/8u4e47u/
+- 卷王后妈，八零养娃 https://www.nvwagen.com/book/8u4e41l/
+- 海岛求生：生活玩家种田囤货 https://www.nvwagen.com/book/8u4e3vj/
+- 我有一座安全城 [赛诗会作品] https://www.nvwagen.com/book/8u4e3e5/
+- [娱乐圈]过分美丽的她 https://www.nvwagen.com/book/8u4e3ab/
+- 日化人生[科研] https://www.nvwagen.com/book/8u4e35d/
+- 清澈女大的六零年代 https://www.nvwagen.com/book/8u4e2uq/
+- 星际团宠小人鱼 [赛诗会作品] https://www.nvwagen.com/book/8u4e2tj/
+- 高调装神，猥琐发育 [赛诗会作品] https://www.nvwagen.com/book/8u4e2sf/
+- 禁止限制文主角转职龙傲天 https://www.nvwagen.com/book/8u4e2pt/
+- 人气反派的马甲演绎实录 https://www.nvwagen.com/book/8u4e2mg/
+- 全民求生:从小木屋到魔法农场 https://www.nvwagen.com/book/8u4e2f1/
+- 大瑛弟国 https://www.nvwagen.com/book/8u4e2ei/
+- 她是反派的背景板母亲 https://www.nvwagen.com/book/8u4e250/
+- 我是唯一地上神国 [赛诗会作品] https://www.nvwagen.com/book/8u4e1tr/
+- 五十年代港城日常 https://www.nvwagen.com/book/8u4e1te/
+- 木叶RPG，恋爱系物语 https://www.nvwagen.com/book/8u4e1ji/
+## 相关内容
+- [README](/README.md)
+- [首页](/site1402/index.md)
+- [最新热点小说](/site1402/newhot.md)
+- [人气小说](/site1402/b111.md)
+- [推荐小说](/site1402/recommend1.md)
+- [推荐小说列表](/site1402/recommend/index.md)
+- [热点小说](/site1402/hot/index.md)
+- [全本小说](/site1402/quanben/index.md)
+- [网站地图](/site1402/sitemap/index.md)
+- [标签](/site1402/tag/index.md)
+- [爱情小说](/site1402/category101/index.md)
+- [武侠小说](/site1402/category102/index.md)
+- [奇幻小说](/site1402/category103/index.md)
+- [仙侠小说](/site1402/category104/index.md)
+- [游戏小说](/site1402/category105/index.md)
+- [传奇小说](/site1402/category106/index.md)
+- [科幻小说](/site1402/category107/index.md)
+- [惊悚小说](/site1402/category109/index.md)
+- [悬疑小说](/site1402/category110/index.md)
